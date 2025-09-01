@@ -1,0 +1,3 @@
+- aula materia:
+- CHL: compensación por horario lectivo (a los que cierren a 20h)
+- desdoble:

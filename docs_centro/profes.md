@@ -1,0 +1,38 @@
+DEPT MATES:
+- pilar (no estaba en la cefeteria)
+- miguel L (izda - jefe dept)
+- miguel ángel (dcha)
+- noelia (apuntaba en tablet)
+- celia (pizarra)
+- luz
+- yo
+
+- clemente lengua
+- almudena inglés
+- fernando latín
+- ? biología
+- carlos educación física
+- cristina auxiliar de enfermería
+- israel filosofía
+- silvia ?
+- eva lengua
+
+- Director Jesús Castro
+- Jefa de Estudios Paloma Elviro
+- Secretario Julio de la Cruz
+- Jefe de Estudios Adjunto Carlos Regueira
+- Jefe de Estudios Adjunto Beatriz Castañares
+- Coordinador Jefe Bilingüe Silvia Navas
+- Jefe de Actividades Extraescolares Jesús Alonso
+- Coordinador T.I.C. Juan Antonio Soto
+- Coordinadora de Proyectos Noelia Torrellas
+- Coordinador de Formación Profesorado David Príncipe
+- Coordinadora de Bienestar María Martínez de Azagra
+- Conserjería Pilar y Julián y Miguel Ángel
+- Secretaria Rosalía, Carmen y Nieves
+- Departamento de Orientación María Martínez de Azagra y Paloma Vaquero
+- Aula TEA Eva Barroso
+- Integradora Social Sonia Lurueña
+- Pedagogía Terapéutica (P.T.) M.Jesús Gómez
+- Audición y lenguaje ( A.L.) Nadie
+- PTSC Nadie

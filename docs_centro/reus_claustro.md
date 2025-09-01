@@ -2,10 +2,29 @@
 1 de septiembre de 2025 a las 10:00 horas en la Sala de Usos múltiples
 
 - Lectura y aprobación, si procede, de actas de claustros anteriores.
+    - se pasa para el siguiente claustro
 - Información sobre el comienzo de curso.
+    - cosas que preocupan a la hora de hacer horarios: 2ESO. Guardias mal cubiertas
+    - algunos profes van a 19h y otros van a 19h pero de otra manera. Se va a intentar cuadrar a 19h siempre que sea posible. Se llegará a 20h cuando no haya otra opción.
+    - Se da el reparto de cargas a los departamentos y se hace la "rueda" por departamentos
+    - pasamos de 2,08 a 2,17 profesores por grupo
+    - faltan muchos profes de lengua y de mates
+    - linea 5 en la ESO. en torno a 900 alumnos en total. en torno a 82 profes en total. 
+    - (introducen a los nuevos profes)
 - Criterios para la confección de horarios
+    - los horarios y las clases se ponen en un programa informático que se llama "Peñalara"
+    - profes no tutores cierran a 19h. tendrían 11 complementarias.
+    - media jornada 10h. 5h complementarias.
+    - 2/3 14h. 6h complementarias.
+    - jefes de departamento cierran a 18h lectivas + JD y 11 complementarias
+    - jefes de departamento unipersonales 19h lectivas
+    - tutores ESO 18h lectivas + tutoría + 1h de convivencia (le han cambiado el nombre a la hora lectiva que era la tutoría y computa como lectiva). no saben si habrá compensación por horario lectivo (una guardia menos)
+    - tutores de bachillerato 19h + 1h de convivencia
+    - tutor FP 19h
 - Relación de cargos y responsables
 - Distribución de las cargas horarias por departamentos
+    - 2 bach ccss 4h
+    - tutor 1 eso 6h (4 de clase y 2 de tutoría)
 - Ruegos y preguntas.
     - correo con dominio @iessapereaude.com? (url incorrecta y ya no válida)
     - calendario y horarios cuando los sabremos?
