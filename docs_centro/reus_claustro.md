@@ -29,3 +29,63 @@
     - correo con dominio @iessapereaude.com? (url incorrecta y ya no válida)
     - calendario y horarios cuando los sabremos?
 - Después del claustro os rogaríamos que firméis en la hoja de asistencia en el claustro.
+
+# REUS PROFES NUEVOS 2 SEPT
+- proyecto educativo
+    - hablan bea, paloma, y jesús
+    - ESPACIOS: 
+        - CONSEJERÍA están los auxiliares de control, que GESTIONAN LAS CITAS DE TUTORÍA, controlan puertas, atienden llamadas, vigilan baños, y tienen las llaves maestras. Normalmente ponen 2 citas por sesión de padres.     
+            - alumnos no pueden entrar ni salir por el parking (suelen querer hacerlo los mayores). solo pueden salir los de 2bach repitiendo con alguna asignatura suelta.
+        - DIRECCIÓN, 
+        - SALA DE PROFES, 
+        - SALA DE TUTORES (donde se hacen reuniones semanales), 
+        - AULA ATRÉVETE (escolarización preferente para alumnos TEA. Ahí van en vez de a las taquillas para prepararse para las siguientes clases y demás. Ahí van los alumnos cuando se estresan y demás, para relajarse. Suelen vovlver con notita firmada. Si alguien pide mucho ir al aula atrévete, informa para asegurarte de que es así), 
+        - ENFERMERÍA (enfermera a tiempo completo en el centro), 
+        - AULA DE CONTROL, 
+        - AULA DE USOS MÚLTIPLES (para hacer alguna actividad juntando grupos, con previo aviso para que bea y paloma gestionen el vaciado del espacio), 
+        - RADIO SAPERE, 
+        - CROMA, 
+        - CAFETERÍA: puedes pedir comida para llevar. son papis de alumnas del cole.
+    - FUNCIONAMIENTO DEL AULA
+        - dotación del aula: ordenador + pantalla digital
+        - dotación alumnos: tablet / ordena + mochila digital + cuaderno / archivador + material escolar
+            - la tablet se usa solo cuando el profe da permiso
+            - recomendación a los padres que utilicen un control parental
+            - se instala camscanner para que escaneen sus trabajos y lo suban a classroom en pdf
+        - dotación del profesor: classroom + correo corporativo + cuaderno del profesor ADDITIO + licencias digitales del profesor + material departamento
+            - ADDITIO está muy bien preparado para evaluar por competencias. la licencia la paga el centro.
+            - nos comprometemos a llevar un seguimiento a través de classroom y a comunicar a los papis cómo van los niños a través de classroom
+    - A QUIÉN ACUDIR:
+        - correo: beatriz castañares, paloma elviro (aquí mandamos a los alumnos que no acceden a classroom por perder contraseña por ejemplo)
+        - tablet de préstamo, rutas, raíces: julio de la cruz
+        - guardias, ausencias, justificantes: carlos regueira, silvia navas
+        - disciplina: paloma elviro, beatriz castañares, carlos regueira, silvia navas
+        - accede: noelia torrellas. (ya se ha decidido el libro a usar en las materias)
+        - orientación: maría martínez de azagra, paloma vaquero. generan el PAT y está en una página web. contactar con ellas si no sabemos como abordar el caso de algún chico específico. tendremos reuniones de atención a la diversidad, seguimientos de todos los casos, etc.
+        - extraescolares: jesús alonso (el de geografía e historia)
+        - cuestiones informáticas: juan soto
+        - coordinación bilingüe: silvia navas
+    - REUS DE EVALUACIÓN:
+        - la primera y la segunda se hacen online
+        - la tercera presencial
+    - hay que poner notas por competencias justificadas. recuerda que con Additio sale bastante fácil. puede ser que cambien las programaciones didácticas y que se organicen por competencias
+    - feria de la ciencia, sobre todo se hacen proyectos científicos en 1eso y se exponen a papis y compis
+    - proyectos:
+        - STEM aprobado hace poco. nos podemos incorporar. (en qué consiste?)
+        - PROA: atención a alumnos vulnerables. se hace formación específica a los docentes. organiza por ejemplo un proyecto de patio donde los menos sociables acuden, con ajedrez, juegos propios, integradora social, etc. llevan también temas de salud mental, trastornos de la alimentación, acoso escolar, etc.
+- proyecto digital
+- acogida digital
+    - cuenta de correo
+    - web del profesor
+        - también hay un cuadrante para reservar las aulas de informática (aunque es más cómodo que los chavales trabajen con las tablets). si eres profe nuevo, para reservar aula de informática, mejor correo al señor este (juan soto)
+        - también se accede a la sección de convivencia donde se ponen los partes y demás
+        - en el apartado de documentos se encuentran los formularios para los días de libre disposición y demás. se mete en el usuario la parte de delante del @ del correo sapere y le das a recuperar contraseña para hacer una nueva y ya poder acceder.
+    - acceso a internet
+        - dispositivos inalámbricos se conectan a WEDU_PROF con las credednciales de educamadrid
+        - ordenadores fijos de aula o de la sala de profes con SO Linux. Usuario de los profes es el mismo del correo electrónico del sapereaude. la contraseña es el dni con la letra mayúscula. si no te acuerdas de tus credenciales tb puedes entrar con user: alumno pass: alumno
+    - realización de fotocopias
+        - carné del profesor se usa para imprimir. en la web del centro, apartado profesores, impresión web, click control. credenciales de los ordenadores fijos. al entrar por primera vez te pide un cambio de contraseña, y cambias el dni por otra. al cambiar esa contraseña de imprimir se cambia también la contraseña de los ordenadores de aula
+        - se puede mandar algo a imprimir en el centro desde casa y luego al llegar al centro pasas tarjetita y sale
+    - google classroom
+        - es la comunicación con los padres. hay que usarlo para que estén siempre informados
+        - hay que meter las notas de los exámenes ahí como mínimo, para que las vayan viendo los padres

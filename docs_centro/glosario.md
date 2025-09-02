@@ -1,3 +1,8 @@
+- alumnos TGE: 
 - aula materia:
+- aula TGD: 
 - CHL: compensación por horario lectivo (a los que cierren a 20h)
 - desdoble:
+- PAT: programa de acción tutorial
+- PGA:
+- TEA:
