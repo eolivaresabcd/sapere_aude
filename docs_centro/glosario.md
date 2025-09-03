@@ -1,8 +1,25 @@
+- ACNEAE: alumnos con necesidades específicas de apoyo educativo
+- ACNEES: alumnos con necesidades educativas especiales
+- ACIS: adaptación curricular individualizada y significativa
+- AL: 
 - alumnos TGE: 
 - aula materia:
 - aula TGD: 
 - CHL: compensación por horario lectivo (a los que cierren a 20h)
+- compensación educativa: dos años de desfase curricular y pertenecer a una minoría
 - desdoble:
+- discapacidad auditiva
+- discapacidad intelectual
+- discapacidad motora
+- discapacidad visual
+- incorporación tardía: los que se acaban de incorporar al sistema educativo español
 - PAT: programa de acción tutorial
 - PGA:
-- TEA:
+- PROA: 
+- PSC: personal de servicios comunitarios
+- PT: 
+- TDAH: trastorno de deficit de atención e hiperactividad
+- TEA: trastorno del espectro autista
+- TEL: trastorno específico del lenguaje
+- TGC: trastorno grave de conducta
+- TSIS: 

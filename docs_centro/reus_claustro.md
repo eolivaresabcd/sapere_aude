@@ -89,3 +89,95 @@
     - google classroom
         - es la comunicación con los padres. hay que usarlo para que estén siempre informados
         - hay que meter las notas de los exámenes ahí como mínimo, para que las vayan viendo los padres
+
+# REU DEPARTAMENTO ORIENTACIÓN 3 SEPT
+- IMPORTANTE: TODOS LOS LINKS A LOS ANEXOS Y DEMÁS COSAS IMPORTANTES ESTÁN EN LA WEB EN EL DPTO DE ORIENTACIÓN
+- nos cuentan todas las salas que usan en el dpto de orientación
+- para atender a la diversidad:
+    - conocer a los chavales
+    - recibir y analizar info de los NEAE (reus, informes, etc.)
+    - realizar evaluación inicial del nivel de competencia curricular y su estilo de aprendizaje
+    - conocer habilidades sociales, hábitos y rutinas
+    - detectar barreras en el aula: organizativas, curriculares, metodológicas
+    - decidir sobre las medidas a adoptar (tenemos hasta la ev. inicial en octubre para decidir)
+    - el tutor recoge las medidas y elabora los anexos correspondientes. se entrega una copia del anexo a las familias y se informa.
+- medidas ordinarias:
+    - agrupaciones flexibles
+    - sesiones de desdoble
+    - orientación a optativas: refuerzo de mates o lengua
+    - organización de materias por ámbitos: 1º y 2º de ESO
+    - etc.
+- aulas para ACNEEEs:
+    - la PTcera: ?
+    - aula Atrévete (aula TEA del centro. aula 15)
+        - aula abierta
+        - aula de apoyo a la inclusión: para estar, crecer, convivir y ser feliz
+        - sirve para alumnos, familias y profes
+        - se puede ir en los recreos para pedir ayuda con alguna cuestión
+        - se hacen talleres de habilidades sociales
+        - sitios dentro del aula Atrévete: rincón de bienvenida, rincón de relajación, rincón de trabajo
+        - todas las medidas que se aplican tienen que estar consensuadas con la familia y firmadas por escrito
+- adaptaciones aplicables:
+    - adaptaciones específicas de acceso al currículo. adecuación de los procesos de evaluación. (anexo IIIa). estas son aplicables a todos los alumnos, tengan o no desfase. ejemplos:
+        - adaptación de pruebas escritas (hay uno de muestra subido en la web)
+        - ficha de preparación de exámenes (subido el template a la web)
+    - adaptación curricular individualizada y significativa. ACIS. se adaptan los criterios de evaluación y los contenidos. deberían estar hechas en noviembre. anexo IIIb. está subido también.
+- tipos de alumno con dificultades específicas de aprendizaje: no se cambian los contenidos ni criterios de evaluación ni ná. son medidas más organizativas y metodológicas, aumento del tiempo, adaptación de formato de las pruebas, despenalizar faltas de ortografía, etc.
+    - tdah
+    - dislexia / discalculia
+    - otras dificultades
+- alumnado de integración tardía:
+    - que se matriculen en el curso correspondiente por edad
+    - si vemos en las pruebas iniciales que van muy flojitos, lo matriculamos en el curso por debajo y cuenta como repetición
+    - se pasan pruebas de nivel de lengua y matemáticas. las pasa el PSC y las valora el departamento correspondiente.
+    - el tutor elabora junto con el equipo docente el informe inicial anexo Va. se entrevista con la familia y el alumno.
+- me salté algunos otros perfiles...
+- altas capacidades:
+    - plan de enriquecimiento individualizado de las materias específicas
+    - hay que hacer derivación
+    - Synapse:
+        - aula de enriquecimiento: los profes proponen talleres de 3 o 4 sesiones de algún tema que interese especialmente al profe (para que detecten tu pasión). Se hace en las horas complementarias del profe.
+        - taller de habilidades sociales con minecraft: están planificando una visita virtual al centro en minecraft
+        - etc.
+
+# REU GUARDIAS Y DISCIPLINA 3 SEPT
+- normas de centro:
+    - no se puede usar el móvil ni los auriculares. si se usa, se pide que lo entreguen y se entrega en jefatura o si no lo quieren dar se pide a un compañero que acuda a jefatura a llamar a alguien. se entrega a los padres al finalizar la jornada o si no pueden venir, el viernes, pero siempre se entrega a sus padres. todo esto está escrito en las normas de organización y funcionamiento del centro.
+    - la cafetería solo la pueden usar en los recreos. nunca jamás entre clases. ni durante las guardias. si me estoy tomando un café en mi hora libre y veo algún alumno ahí le digo que vaya a clase, que ahí no deben estar.
+    - recreos: no se puede salir fuera en ningún recreo, salvo los de bach y los de ciclos. tienen que ser puntuales al salir y entrar. solo pueden salir por la puerta de alumnos. no puede haber nadie en el edificio durante los recreos. tienen que estar en el patio para que les de el aire. para los días de lluvia hay soportales y unas pérgolas. 
+    - hay pocos baños y muchos alumnos. acuden muchos a la vez durante el recreo. solo se puede ir durante las clases si es una urgencia. el control de baños los llevan los auxiliares de control, que abren y cierran. en los recreos también pueden ir. lo ideal es empezar tranquilamente la clase y una vez está tranquila los vamos mandando pero de uno en uno. en el recreo se abren los baños del gimnasio para que entren solo los de primero y segundo de eso, para que no se asusten con los mayores.
+    - para los horarios de clase está el timbre y la música. en ningún caso se puede sacar a los chicos antes de tiempo. hay que ser riguroso con los horarios de entrada y salida. si llegan tarde se pone retraso en raíces y si es reiterado se toman medidas. los que llegan tarde se quedan en el aula de tardones y se incorporan a segunda hora. el sacar de clase es una sanción en sì misma. no podemos sancionar de otra manera más la misma falta de conducta.
+- normas de aula
+- comunicaciones con las familias (a través del apartado profesores de la web del centro)
+    - incidencias académicas (funcionan muy bien con los de 1eso y 2eso)
+        - positivas o negativas
+        - se limitan a cuestiones académicas
+        - se gestionan a través de la web del profesor y les llega un correo a las familias automáticamentes
+    - comunicaciones de faltas (en el apartado parte de disciplina de la web en la pestañita de profesor)
+        - cuestiones de comportamiento
+        - pueden ser leves o graves
+        - FL es falta leve (lo tramita el proprio profesor), FG es falta grave (esto es reunión del equipo directivo con la familia), FMG es falta muy grave (esto es una reunión del equipo directivo con la familia). Lo que se escribe en la descripción de la falta lo lee la familia. piensa bien lo que vas a escribir!
+        - es importante no poner faltas gordas sin haber progresado primero con incidencias académicas chiquitillas, faltas, partes leves, y demás. 3 retrasos ya suponen un parte leve por retrasos.
+        - hay que darle al sobrecito de enviar una vez se ha guardado el parte, por si cambias de opinión
+        - después de un parte grave o muy grave es conveniente que el profe de su versión de los hechos para que en jefatura sepan como lidiar con el chico. ellos luego citan a la familia y demás.
+    - guardias
+        - si no llego al cole, llamo y que me apunten en la sábana donde figuran los nombres de las personas que faltan.
+        - durante las guardias, no podemos sacar a los chavales al patio. ni a las aulas dedicadas.
+        - durante las guardias, siempre hay que estar localizables. si entramos en un aula vacía hay que pasar por control para comunicarlo primero.
+        - si falto, dejo tarea en classroom y lo comunico al profe de guardia para que sepa que tienen cosas que hacer.
+        - controlar que no usen la tablet de manera indebida. que lean un libro, que estuden para el siguiente examen, que hagan deberes, etc.
+        - se pasa lista en papel del grupo de guardia y se entrega al profe de turno. o se puede enviar la lista por correo al profe de turno.
+        - lugar de inicio: aula de control (al lado de las escaleras, según miras a cafetería, con una zona para estar y un ordenador). los alumnos no pueden entrar en el aula de control.
+        - para las actividades complementarias hay que atenderlas con este orden de preferencia:
+            - profesor con hora de guardia
+            - profesor con hora lectiva liberada por la actividad
+            - profesor de apoyo a guardia
+        - a los chavales que estén escondidos los mandamos a jefatura para que vean por qué están ahí.
+        - tipos de guardia: las guardias no se reservan. se reparten con el equipo ese mismo día.
+            - guardia
+            - apoyo de guardia
+            - guardia de patio
+            - guardia de aulesco (aula de )
+        - tenemos un máximo de 3 guardias semanales
+
+# REUNIÓN TUTORES 1ºESO (ACOGIDA DE ALUMNOS) 4 SEPT
