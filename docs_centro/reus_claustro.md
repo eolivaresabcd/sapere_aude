@@ -181,3 +181,35 @@
         - tenemos un máximo de 3 guardias semanales
 
 # REUNIÓN TUTORES 1ºESO (ACOGIDA DE ALUMNOS) 4 SEPT
+PREPARAR TODO ESTO EL DOMINGO
+
+- María (Orientadora): lleva las reus de primero y segundo
+- Paloma (Orientadora): también estará aquí pero para tercero y cuarto
+- Paloma Elviro: jefa de estudios
+- Sonia: integradora social (TIS)
+- Eduardo (Mates): Tutor del A
+- Diego (Lengua) B
+- Mª Luisa C
+- Adrián (PE) D
+- Sara E
+
+- MARTES: 9:30 vienen. nos reunimos en el porche y vamos llamando a los alumnos. se van con el tutor. les asignamos las aulas del pasillo de lengua. 
+- de 9:30 a 10:15 se hace una pequeña presentación. me presento, qué asignatura doy, etc. pregunto a ellos un poco. hago juego: ellos se van a una isla desierta con sus amigos y se llevan un objeto. si el objeto empieza con la inicial de su nombre se lo pueden llevar, pero si no, no. para eso, que saquen papelito y que escriban el nombre. todo lo vamos apoyando con la presentación que está subida en el apartado de orientación, tutoría. después vemos el vídeo, y luego al recreo. se preparan los grupos para la siguiente actividad antes de salir al recreo.
+- luego gymkhana para que aprendan a moverse por el centro. esto se hace en grupos de 5 y se elige un responsable para cada grupo. ellos se eligen. cada grupo tiene asociado un color que les guste (de entre los listados en el documento de la actividad). se les da un mapa del insti y unas preguntas para encontrar los 10 sitios de la gymkhana. siempre tienen que ir los 5 a esos puestos! sonia va a estar en los soportales de apoyo y recogiendo tarjetas. premio al grupo que haya ganado.
+- nos han preparado classrooms de tutoría para comunicarnos por ahí. subimos la presentación y la subimos al classroom de la tutoría.
+- MIERCOLES: sesión de tutoría de 1h. de 9:30 a 10:30 en la acogida digital, los tutores estamos con los chavalines. 
+- recomendación: hacer cada uno de los tres días un poquito de presentación y alguna dinámica, para que los chavales no se aburran
+- horario: si llegas más de 5 mins tarde no entras a clase. vas a la clase de tardones y eso es un problema! muchi cuidadín. lunes y miércoles tienen 7a hora. ya hay agendas! pasamos por conserjería y recogemos 25. mejor dársela el segundo día (el miércoles). Todos los días tienen que traer la agenda. en sept y junio también hay séptima hora. en la agenda también están las normas de convivencia.
+- diapo hábitos de alimentación
+- diapo sueño
+- diapo deporte: aquí contamos lo del programa IPAFD. son dos tardes a la semana de 4 a 6. solo 14 euros al año. basket, futbol, badminton, rugby, voleibol. se pueden apuntar a más de uno. lunes y miercoles de 3.45 a 5.15. de 3 a 4.30 voley y badminton martes y jueves
+- hacer hincapié con el trato: saludar a los compis y a los profes. llamar antes de llegar. pedir perdón por llegar tarde.
+- EL LUNES SE LES DA EL HORARIO DE CLASE. En tutoría les ayudaremos a hacerse un horario de estudio por la tarde. Mejor que pongan el horario a lápiz.
+- aulas materia
+- taquillas (se van haciendo a la vez que la acogida digital). explicamos las normas de utilización de las taquillas. cuidado con llevar la tablet al recreo pq se puede perder. 
+- uso del móvil
+- rutas: ellos han puesto la parada que querían en primer y en segundo lugar. a todos les ha tocado la parada que han elegido en primer lugar y eso no se puede cambiar. ya está repartido. ya les ha llegado un correo a los padres el día 4 de sept con el sitio donde les recogen o la ruta a la que pertenecen. eso lo pondrá en un carnet que tengan. si lo pierden hay que sustituirlo en conserjería por 2 euros. 
+- baños: en los recreos pueden ir a los baños del gimnasio. solo pueden los de 1º y 2º.
+- rutina de estudio: (esto ya por si sobra tiempo)
+- se pueden quedar a comer aquí. hay micro. piden comida si quieren. menos de 7 euros. 6 con algo. muchas opciones de pago.
+- REUS DE TUTORES UNA VEZ A LA SEMANA. 
