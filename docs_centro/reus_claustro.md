@@ -213,3 +213,246 @@ PREPARAR TODO ESTO EL DOMINGO
 - rutina de estudio: (esto ya por si sobra tiempo)
 - se pueden quedar a comer aquí. hay micro. piden comida si quieren. menos de 7 euros. 6 con algo. muchas opciones de pago.
 - REUS DE TUTORES UNA VEZ A LA SEMANA. 
+
+# REU ATENCIÓN A LA DIVERSIDAD 1ESO A
+- ardón pineda daniela judith: compe
+    - llega a mitad de curso de 5 primaria de honduras
+    - nivel bajísimo
+    - se queda con su hermana de 19 años
+    - ha vivido cosas muy difíciles para una niña
+    - dudan de su capacidad pero como el nivel era tan bajo no se le hizo evaluación
+    - dramática cuando le pasa algo, pero ya lo han estado trabajando en ello en el cole
+    - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
+- chen chen kedun: necesidades educativas especiales - trastorno específico del lenguaje
+    - competencias en lenguaje muy bajas
+    - errores gramaticales
+    - frases muy sencillas
+    - obtiene mejores calificaciones en matemáticas
+    - ha mejorado a nivel social, aunque le cuesta
+    - no sabemos si había tenido adaptaciones curriculares, pero probablemente en Lengua e Inglés necesite adaptaciones significativas
+    - creemos que es hermano de alguna alumna que ha estado aquí
+    - parece que hay muy poca supervisión en la familia
+    - va a parecer que acaba de aterrizar del avión de china; parece que no sabe nada de castellano, aunque lleva toda la vida en españa
+- escribano sarmiento antonio: otras DEA - no es un trastorno específico
+    - mala caligrafía
+    - muy despistado
+    - desastre con el material
+    - divertido
+    - media de bien
+    - solo por las tardes en casa y trabaja poco
+- fernández san martín mikel: TDAH
+    - buen chico
+    - sensible
+    - familia sensible y colaboradora
+    - sin ayuda es incapaz de completar una prueba
+    - en las pruebas psicopedagógicas está al límite (no discapacidad ni lectoescritura)
+    - más tiempo, letra más grande, 
+    - comprensión lectora mala
+    - tiene psicopedagogo, logopedia, etc.
+    - dentro del TDAH es muy inatento
+    - le enganchan las materias artísticas
+    - inglés imposible porque no se le ha hecho adaptación significativa. viene con la materia suspensa.
+    - muy dependiente
+    - de aspecto parece una niña
+    - parece género fluido
+    - acceso al baño de chicas?
+    - tiene heramana más pequeña y se relaciona con las niñas
+    - hay que cuidarlo un poco en clase
+    - padres separados, pero muy implicados
+- garcía peláez marta: TDAH y TEL
+    - hermana de una alumna de necesidades que ha estado hasta 4 y se piró a una FP
+    - hermana de Noemí
+    - situación difícil en casa
+    - marta es la cuarta de los hermanos
+    - originarios del país vasco
+    - acogidos por el hermano de la madre en 2016 en el pardillo
+    - hay otros 2 hijos propios de los tíos. en total 6 niños en casa.
+    - los padres los abandonaron y se le retiró la tutela. ingresaron a la madre, etc.
+    - ha muerto el padre de acogida hace 2 años
+    - la madre adoptiva, ana belén, se ha quedado sola con los 6
+    - marta tiene dificultades a nivel social
+    - tiene un horario de estudio en casa para llevar al día las asignaturas
+    - marta toma medicación pero no acaban de encontrar la adecuada que le haga el efecto óptimo
+    - están en revisión en puerta de hierro
+    - va a necesitar adaptación en Lengua, Mates, Inglés, como mínimo. las demás ya vamos viendo.
+# REU ATENCIÓN A LA DIVERSIDAD 1ESO B
+- acosta campos leandro aser: NEA (necesidades educativas especiales) - TEA
+    - vino en 5 primaria desde perú
+    - le ha costado mucho adaptarse
+    - el covid lo llevó fatal y le costaba salir a la calle por miedo
+    - en perú se le diagnosticó de TEA y TDAH
+    - viene del Carpe Diem
+    - tiene apoyos de PT y AL
+    - en inglés tiene nivel 0 
+    - seguro que necesita adaptaciones en Lengua y Mates
+    - le cuesta expresión escrita, vocabulario, etc.
+    - se considera bueno en mates
+    - no es bueno en dibujo, pero él cree que podría serlo
+    - la autopercepción es poco realista
+    - muy sensible a las críticas
+    - hipersensibilidad sensorial
+    - no come muy bien. muy selectivo con la comida
+    - en el cole no ha tenido crisis ni nada de eso pero en casa sí
+    - se autolesiona y se pone a llorar
+    - en clase se agobia porque le cuesta seguir el ritmo
+    - necesita un compañero ayudante
+    - si levanta la mano para ir al baño hay que dejarle ir, pq es un mecanismo que él utiliza para regularse
+    - puede venir solo
+    - la madre está a disposición, y si no está la hermana de 19 años
+    - conoce a 3 niños (a ver si coinciden)
+    - toma medicación para dormir y para la depre
+    - tiene asma
+    - retraído
+    - necesita mucha fragmentación de tarea
+    - necesita mucha anticipación de cambios
+    - las materias de programa que estén en inglés hay que adaptárselas en español
+    - se pega en la cara y se da con un cable
+    - la madre ha pedido refuerzo de lengua
+- en la web del departamento de orientación, hay un documentillo a rellenar para que pongamos observaciones de los chavales con necesidades especiales. se llama registro de observaciones de principio de curso y nos lo van a enviar por correo.
+- diez recalde ulises: altas capacidades
+    - no se le había aplicado mediad de enriquecimiento
+    - se implica
+    - familia bien
+    - excelente en música
+    - mucha empatía
+    - perfil de futuro político (xd)
+    - tenía un programa de matemáticas especial en el Rayuela
+    - van a llamar al Rayuela para ver qué programa han hecho
+    - intentar que no se aburra mucho
+- peraita basualdo kai: TDAH
+    - buen rendimiento
+    - madre muy intensa
+    - seguimiento por servicios sociales
+    - separación de los padres traumática para la madre
+    - tiene problema de relación social
+    - disruptivo en clase
+    - en casa es un poco tirano, de los que no reconoce lo que hace
+    - la madre tiene seguimiento de salud mental
+    - la madre envía mensajes individuales a otros padres y la lía
+    - en el insti se reúnen con servicios sociales y ven por donde va avanzando la cosa
+- sullivan rosales ricardo aarón: DEA - dislexia y TDAH
+    - se incorporó de honduras en tercero
+    - le va mejor desde que toma la medicación
+    - ha recibido apoyo de PT y AL 
+    - familia muy colaboradora
+    - ha pasado con mates, plástica e inglés suspensas
+- vega barberá darío: altas capacidades
+    - llega en 6 de primaria
+    - viene de un colegio muy privado
+    - sospecha de TDAH
+    - piensa más rápido que habla
+    - se le derivó al PEA
+    - en el cole ha estado muy feliz
+# REU ATENCIÓN A LA DIVERSIDAD 1ESO C
+- assaid ben ali mohammed: compe
+    - no tenemos mucha info
+    - no viene de los centros de la localidad
+    - se incorporó el año pasado sin idioma
+    - ahora entiende bien el español
+    - escrito no entiende nada
+    - maneja castellano de bazar, comercial (xd)
+    - se intenta escaquear de las tareas. tiene un morro que se lo pisa.
+    - el año pasado se le mandaba mucho material, pero no hacía nada.
+    - le ayudaba mucho su prima
+    - a los padres no los conocimos
+    - no trabaja absolutamente nada en casa
+    - es importante que esté cerca del profe, porque si puede, se escaquea
+- fernandez jima aimar: DEA
+    - no viene de nuestros centros
+    - problemas con la atención sostenida
+    - no es un diagnóstico ni valoración muy concreta
+    - hay que observarle porque no tenemos mucha info
+- herranz freyer mario: TDAH
+    - hermano de saúl
+    - la tutora tuvo un problema con la madre
+    - la tutora corregía al niño en clase y le llamaba la atención, pero decidió dejar de hacerlo
+    - la madre denunció a la tutora
+    - apuntad todo lo que hagais con él
+    - la madre dice que su hijo no aprueba no porque no haga nada, sino porque no se toman medidas
+    - refuerzo en mates
+    - el padre es conciliador
+# REU ATENCIÓN A LA DIVERSIDAD 1ESO D
+- ameziane labouz adam: TEL
+    - familia moarroquí
+    - hijo único
+    - la familia parece que no habla el idioma
+    - repitió 1 primaria
+    - mates y lengua suspensas de 6
+    - en mates ACIS seguro y en lengua tb y en inglés tb
+    - acudía a las clases de apoyo del cole
+    - presentaba problemas de conducta en esas clases
+    - comentarios sexistas
+    - enganchadísimo al móvil
+    - ve contenido no adecuado a su edad
+    - en el cole el comportamiento era mucho mejor
+- arrojo rodríguez manuel: TEA del Aula Atrévete
+    - solo madre
+    - hermano mayor
+    - problemas de salud
+    - escolaridad irregular
+    - a los 3 años tuvo un tumor que le afectó al cerebro
+    - escribe con la izquierda por ello
+    - diparesia. se contraen los músculos.
+    - en PE tiene muchas dificultades por ello
+    - adaptaciones en mazo asignaturas
+    - discapacidad motórica detectada a los 3 años
+    - TEA detectado en noviembre del 23
+    - la madre es bastante intensa. está muy sobrepasada. demanda mucho en las reuniones, pero ella es un poco caos
+    - reuniones con la madre siempre acompañados y levantar acta, para que ella no juegue a que dijimos esto o lo otro
+    - la madre necesita mucha información por escrito
+    - tiene bastante miedo de bullying hacia su hijo. dice que le insultan, le hacen vacío, etc, pero los profes del cole no dicen lo mismo: dicen que estaba agusto
+    - tiene dos años más que el resto de compis de su clase
+    - viven en fresnedillas
+    - ha cambiado un montonazo de cole
+    - hemos solicitado técnico 3 por el tema motórico
+    - también es importante que se sienta acompañado en el cambio de clase
+    - tiene fisio
+    - niño muy bueno
+    - válvula en la cabeza
+    - alguien del departamento tiene que acompañar al tutor en las reuniones, o si no alguien de jefatura. o para llamadas telefónicas enviar un correo "tal y como hemos hablado por teléfono, etc." y con alguien en copia para curarnos en salud
+    - sensible a los ruidos y a la luz
+    - la madre cree que es un genio en música y dice que tiene oído absoluto
+    - PE lo odia pq le da miedo saltar, la pelota, psicomotrizidad fina
+    - dictados también le cuestan y se confunde con fonemas
+    - hay que estar muy pendietes en el área social
+    - lenguaje muy literal
+    - no entiende las bromas
+    - necesita estructuración y anticipación de cambios
+    - lengua, mates muy bajito.
+- diaz caballero álvaro: DEA - dislexia
+    - hasta 6 era ACNEE y ha tenido apoyos
+    - ahora se le han retirado por el nuevo diagnóstico
+    - muy trabajador
+    - dificultades en lectoescritura
+    - dificultades en organización, planificación
+- hoyas gómez martín: altas capacidades
+    - enriquecimiento curricular en mates en el cole
+    - muy tranquilo
+    - sin problemas
+    - si se aburre o necesita caña ya sabes
+- marcos alvarez rodrigo: DEA - TDAH dijeron en el cole, pero en el informe no lo pone
+    - problemas de atención
+    - muy buenos resultados
+    - lleva mal trabajar en equipo
+    - bueno en mates
+    - sospecha de TEA
+# REU ATENCIÓN A LA DIVERSIDAD 1ESO E (aquí solo hay DEA)
+- davila guevara ariadne paola: TDAH
+     - hay que certificar ahora a nivel clínico. solo se han visto indicios aquí en el departamento de orientación
+     - escirbe y lee muy bien. hay que proponerla al club de lectura
+     - muy dificil ver a la madre. no se habla de padre
+- ennassri bouzamimounee omaima: TDAH
+    - hermana de salma
+    - ya ha repetido una vez
+    - TEL antes, pero ahora le han retirado los apoyos
+    - dificultades en mates
+    - buena en lengua
+    - está medicada
+    - atentos a nivel social. a veces está sola en el patio pq le cuesta relacionarse
+- lahrouzi aya: TDAH y dislexia
+    - vienen de colmenar de arroyo
+    - madre implicada y preocupada por los chicos y colaboradora. se deja asesorar. 
+- redondo chico elsa: dislexia
+    - no viee de los centros de la localidad. tenemos poca info. 
+
+
