@@ -1,0 +1,23 @@
+# BIENVENIDA 1 ESO A 20250908L
+- día1:
+    - presentacion tutor
+    - sacan papelito y escriben nombre y cole y grupos de 5 y responsable (naranja morado azul verde fucsia)
+        - 10 aulas
+        - puede que haya premio para el grupo ganador!
+    - classroom tutoría y matemáticas
+    - entregar agendas
+    - video presentación insti
+    - web centro
+    - TEA: trastorno del espectro autista
+    - IPAFD: institutos promotores de la actividad física y el deporte
+    - sueño, deporte, alimentación, organización
+    - horario
+    - aulas materia
+    - mapitas para gymkhana (no explicar, que se orienten ellos!)
+    - SUBIR PRESENTACIÓN AL GRUPO DE LA TUTORÍA
+
+- día2:
+- normas centro
+- taquillas
+- etc. (continuará)
+- presentación por parejas alumnos

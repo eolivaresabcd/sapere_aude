@@ -13,6 +13,7 @@
 - discapacidad motora
 - discapacidad visual
 - incorporación tardía: los que se acaban de incorporar al sistema educativo español
+- IPAFD: institutos promotores de la actividad física y el deporte
 - PAT: programa de acción tutorial
 - PGA:
 - PROA: 
