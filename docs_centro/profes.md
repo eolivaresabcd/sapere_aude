@@ -1,11 +1,12 @@
 DEPT MATES:
-- pilar (no estaba en la cefeteria)
-- miguel L (izda - jefe dept)
-- miguel ángel (dcha)
-- noelia (apuntaba en tablet)
-- celia (pizarra)
-- luz
-- yo
+- pilar.garridomartinez@iessapereaude.com
+- miguel.laynez@iessapereaude.com
+- miguelangel.fernandez@iessapereaude.com
+- noelia.torrellas@iessapereaude.com
+- celia.castanos-mollor@iessapereaude.com
+- luz.alvarez@iessapereaude.com
+- susana.abadtejera@iessapereaude.com
+- eduardo.olivares.lopez@iessapereaude.com
 
 - clemente lengua
 - almudena inglés

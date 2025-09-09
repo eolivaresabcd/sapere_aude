@@ -455,4 +455,136 @@ PREPARAR TODO ESTO EL DOMINGO
 - redondo chico elsa: dislexia
     - no viee de los centros de la localidad. tenemos poca info. 
 
+# REU ATENCIÓN A LA DIVERSIDAD 2BACH NEE
+- nawala assaid amezian 2D (NEE)
+    - trastorno específico del lenguaje
+    - dificultades en inglés. lo tiene suspenso desde el curso pasado.
+    - aprendizaje memorístico. memoriza todo lo que puede. le cuesta razonar.
+    - siempre reclama tiempo extra para los exámenes, pero sin pasarse (15 o 20 min más)
+    - tipología de examen si se puede cambiar mejor
+- gonzalo sanchez salas 2D (NEE)
+    - discapacidad auditiva
+    - TDAH
+    - dermatits
+    - debería llevar audífonos, pero no lo usa
+    - tiene un cacharrito que se puede conectar a un cacharrito que usa el profesor para que él escuche. él mismo lo entrega al profesor para que se use.
+    - tuvo una audición normal hasta 1ESO, que perdió la audición de manera repentina
+    - se cree que sabe más de lo que sabe
+    - tiene apoyo de su abuelo incondicional
+    - los padres van a exigir todas las medidas y van a mirar con lupa los exámenes
+    - que gonzalo firme un compromiso por su parte para que luego no se líen a exigir cosas
+    - que él escriba en el examen "no necesito más tiempo"
+    - ofrecerle siempre adaptaciones de tiempo, más hojas, etc.
 
+# REU ATENCIÓN A LA DIVERSIDAD 1BACH DEA
+- daniel arroyo lara 1E humanidades y ccss
+    - altas capacidades
+    - dislexia
+    - rendimiento irregular
+    - suspendió una en la segunda evaluación de cuarto
+- hugo adrián león astudillo 1E humanidades y ccss
+    - dislexia
+    - buen comportamientom en el cole, pero en casa tiene problemas de relaciones familiares
+    - promociona con todo aprobado y titula
+    - no presentaba demasiado interés
+    - estaba en el plan refuerza
+- victoria souto fajardo 1D
+    - trastorno de atención
+    - importante observar porque es nueva
+- gabriel fraga lacalle 1B ciencias y tecno
+    - tiene dislexia
+    - impulsivo
+    - se le recomendó grado medio pero está aquí
+- natalia frutos domingo 1C ciencias y tecno
+    - suspende mates pero quiere hacer ciencias
+- juan fernando ruiz lopez 1A ciencias y tecno
+    - trastorno de atención
+    - quiere entrar al ejército
+
+# REU ATENCIÓN A LA DIVERSIDAD 2BACH DEA
+- nicolás radu basarab 2C humanidades
+    - dislexia
+    - necesita más tiempo
+    - flexibilizar las faltas de ortografía
+- lucas fernandez lopez 2C
+    - dislexia
+    - muy mal rendimiento
+    - le han forzado a hacer bachillerato
+    - es repetidor
+    - quiere entrar en el cuerpo de policía
+    - complicao que se saque el título de bachillerato
+- sebastian gete mondragón 2D humanidades
+    - trastorno del aprendizaje
+    - estuvo de trastorno específico del lenguaje
+    - super trabajador
+- gonzalo sánchez
+    - déficit de atención
+- luna sanz escudero 2D
+    - déficit de atención
+    - lectoescritura
+    - no quiere significarse: ni más timepo, ni exámenes adaptados, ni ná
+    - de momento no se aplican mediadas hasta que no quiera
+- rebeca linares moreno 2A
+    - trastorno de atención
+    - problemas de salud mental
+    - la medicación le puede producir temblores
+- lucía de la misericordia herrero 2B
+    trastorno de atención
+
+# REU ATENCIÓN A LA DIVERSIDAD 1BACH CONDICIONES DE SALUD
+- may castrillón muñoz 1D humanidades
+    - salud mental
+    - tuvo protocolo pero estaba cerrado
+    - vino a mitad de curso de otro insti
+    - había estado ingresada y se incorpora por fin aquí
+    - los profes contentos con ella. dicen que es muy buena persona.
+- adriana espinel solís 1D
+    - salud mental
+    - no nos pueden decir mucho
+    - ansiedad el año pasado
+    - repite
+- irene picón miguel 1E humanidades y ccss
+    - salud mental
+    - situación familiar horrible
+    - se la ha manipulado por ambos lados
+    - tiene mucho potencial
+    - depende mucho de cómo estén las cosas en casa
+    - ha vivido con el padre y con la madre por separado, pero mal con los dos
+    - muy pendientes de ella en clase
+    - cuidado con el tema de consumo
+- noah gomez vicioso
+    - se va a usa
+- erika sosa gonzalez 1A
+    - niña muy introvertida
+    - tiene una hermana gemela
+    - alto nivel de ansiedad por los resultados académicos
+    - muy autoexigente
+    - muy hermética
+    - buena gente
+    - crisis gordas de ansiedad
+    - empezó en tercero
+    - no salía de casa y no iba con los amigos
+    - mejor no salir a la pizarra si no quiere
+    - inteligente y trabajadora
+    - le gustan mucho las ciencias
+    - antes se presentaba voluntaria para todo lo que había que hacer fuera de horario escolar, pero dejó de ser así
+    - empezó terapia pero luego lo dejó
+    - tiene apoyo de las compis
+
+# REU ATENCIÓN A LA DIVERSIDAD 2BACH CONDICIONES DE SALUD
+- cari vasquez megía 2D   
+    - niña que estubo medio bien el año pasado
+    - salud mental
+    - estuvo algo peor en cuarto de eso
+    - estuvo ingresada
+    - empezó el año pasado una relación con un compi y parece que remontó un poco en su vida
+    - relación con la madre tóxica, pq la madre es muy manipuladora
+    - su estado de ánimo depende mucho de cómo esté con este chaval
+- rebeca linares moreno 2A
+    - ya hemos hablado de ella
+- sofía romero albendin 2B ciencias
+    - tuvo que dejarlo al final del año pasado, en el último mes (en primero de bach)
+    - salud mental. trastorno de la conducta alimnetaria y depresión
+    - se fue bastante mal, a dos semanas de acabar el curso
+    - muchos recreos los pasa en orientación
+    - sospecha de altas capacidades

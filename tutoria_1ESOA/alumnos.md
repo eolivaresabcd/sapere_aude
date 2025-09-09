@@ -1,0 +1,110 @@
+- aharrar	afkir	fátima
+- alvarez	castillo	paola
+- alvarez	lozano	julia
+- ardón	pineda	daniela judith (COMPE)
+    - Llegó en 5º primaria de Honduras. 
+    - Situaciones complicadas en su país. 
+    - Nivel muy bajo pero no tiene evaluación aun. 
+    - Muy dramática cuando le pasa algo.
+    - llega a mitad de curso de 5 primaria de honduras
+    - nivel bajísimo
+    - se queda con su hermana de 19 años
+    - ha vivido cosas muy difíciles para una niña
+    - dudan de su capacidad pero como el nivel era tan bajo no se le hizo evaluación
+    - dramática cuando le pasa algo, pero ya lo han estado trabajando en ello en el cole
+    - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
+- britez	villarreo	elena denisse
+- campos	labayru	laia
+- chen		kerun (ACNEAE)
+    - Trastorno especifico del lenguaje. 
+    - buenos resultados en matemáticas. 
+    - Mejora a nivel social. 
+    - va a necesitar adaptación significativa en inglés y en lengua.
+    - competencias en lenguaje muy bajas
+    - errores gramaticales
+    - frases muy sencillas
+    - obtiene mejores calificaciones en matemáticas
+    - ha mejorado a nivel social, aunque le cuesta
+    - no sabemos si había tenido adaptaciones curriculares, pero probablemente en Lengua e Inglés necesite adaptaciones significativas
+    - creemos que es hermano de alguna alumna que ha estado aquí
+    - parece que hay muy poca supervisión en la familia
+    - va a parecer que acaba de aterrizar del avión de china; parece que no sabe nada de castellano, aunque lleva toda la vida en españa
+- córdoba	fariñas	antonio alessandro
+- cruz	rabazo	sofía
+- durán 	torrecilla	javier
+- durán 	torrecilla	oliver
+- durán 	valderrama	daniel estevan
+- ennassri		salma
+- escribano	sarmiento	antonio (DEA)
+    - Mala caligrafía, despistado, desastre con el material. 
+    - divertido. 
+    - solo por las tardes en casa y trabaja poco.
+    - mala caligrafía
+    - muy despistado
+    - desastre con el material
+    - divertido
+    - media de bien
+    - solo por las tardes en casa y trabaja poco
+- fernández	san martín	mikel (DEA: TDAH)
+    - Sensible
+    - familia colaboradora. 
+    - Sin ayuda no es capaz de realizar una prueba. 
+    - Lee silabeando. 
+    - Todos los apoyos en casa. 
+    - Perfil muy inatento. 
+    - Le gusta el arte, música. 
+    - Inglés muy mal, porque no se le puede hacer adaptación significativa. 
+    - Aspecto como una niña, género fluido. 
+    - Acceso al baño de chicas?
+    - buen chico
+    - sensible
+    - familia sensible y colaboradora
+    - sin ayuda es incapaz de completar una prueba
+    - en las pruebas psicopedagógicas está al límite (no discapacidad ni lectoescritura)
+    - más tiempo, letra más grande, 
+    - comprensión lectora mala
+    - tiene psicopedagogo, logopedia, etc.
+    - dentro del TDAH es muy inatento
+    - le enganchan las materias artísticas
+    - inglés imposible porque no se le ha hecho adaptación significativa. viene con la materia suspensa.
+    - muy dependiente
+    - de aspecto parece una niña
+    - parece género fluido
+    - acceso al baño de chicas?
+    - tiene heramana más pequeña y se relaciona con las niñas
+    - hay que cuidarlo un poco en clase
+    - padres separados, pero muy implicados
+- garcía	peláez	marta (DEA: TDAH y TEL)
+    - Hermana de Noemí. 
+    - Es la pequeña de 4 hermanos, hace unos años tuvieron que ser acogidos por un tío en el pardillo en 2016. 
+    - 6 niños en casa. 
+    - Abandono por parte de los padres. 
+    - El padre de acogida murió hace tres años. 
+    - Marta tiene muchos problemas de socialización y de aprendizaje pero la madre de acogida está muy encima. 
+    - Toma medicación pero no encuentran la medicación adecuada que le vaya bien. 
+    - Adaptación en mates, lengua e inglés.
+    - hermana de una alumna de necesidades que ha estado hasta 4 y se piró a una FP
+    - hermana de Noemí
+    - situación difícil en casa
+    - marta es la cuarta de los hermanos
+    - originarios del país vasco
+    - acogidos por el hermano de la madre en 2016 en el pardillo
+    - hay otros 2 hijos propios de los tíos. en total 6 niños en casa.
+    - los padres los abandonaron y se le retiró la tutela. ingresaron a la madre, etc.
+    - ha muerto el padre de acogida hace 2 años
+    - la madre adoptiva, ana belén, se ha quedado sola con los 6
+    - marta tiene dificultades a nivel social
+    - tiene un horario de estudio en casa para llevar al día las asignaturas
+    - marta toma medicación pero no acaban de encontrar la adecuada que le haga el efecto óptimo
+    - están en revisión en puerta de hierro
+    - va a necesitar adaptación en Lengua, Mates, Inglés, como mínimo. las demás ya vamos viendo.
+- guzmán	mejía	kristen ariana
+- hernández	sánches	adriana
+- lanni	paradas	marcello
+- martínez	agudelo	juanita
+- pascual	rodríguez	olivia
+- sanz	jara	luna
+- sesin		alí
+- silva	martínez	valentina
+- vaquero	arteaga	sergio (mote: gio)
+    - cumple: 2025/09/10
