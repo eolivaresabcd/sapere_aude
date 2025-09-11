@@ -8,19 +8,26 @@
     - mapitas para gymkhana (no explicar, que se orienten ellos!)
 
 - día2:
-- felicitamos a sergio (Gio)
-- esperamos un poco mientras viene la tal ANA O para la acogida digital (y ya preguntamos lo de las tablets y demás)
-- classroom tutoría y matemáticas
-    - en el de tutoría están los documentos del IPAFD para que vean con los padres
-    - hay info y la hoja de inscripción (se imprime, se rellena, se firma)
-- video presentación insti
-- web centro
-- IPAFD: institutos promotores de la actividad física y el deporte
-- sueño, deporte, alimentación, organización
-- horario
-- aulas materia
-- SUBIR PRESENTACIÓN AL GRUPO DE LA TUTORÍA
-- normas centro
-- taquillas
-- etc. (continuará)
-- presentación por parejas alumnos
+    - felicitamos a sergio (Gio)
+    - esperamos un poco mientras viene la tal ANA O para la acogida digital (y ya preguntamos lo de las tablets y demás)
+
+- día3:
+    - de 9:30 a 10:30 con el tutor
+        - los de la ruta F os habeis podido subir? (antonio y elena britez)
+        - TAQUILLAS 1 a 25 hall cafetería
+        - video presentación insti
+        - web centro
+        - IPAFD: institutos promotores de la actividad física y el deporte
+        - sueño, deporte, alimentación, organización
+        - horario
+        - aulas materia
+        - SUBIR PRESENTACIÓN AL GRUPO DE LA TUTORÍA
+        - normas centro
+    - de 11 a 12 acogida digital
+        - repasar tema correo por donde van
+        - classroom tutoría y matemáticas
+            - en el de tutoría están los documentos del IPAFD para que vean con los padres
+            - hay info y la hoja de inscripción (se imprime, se rellena, se firma)
+
+
+    - etc. (continuará)
