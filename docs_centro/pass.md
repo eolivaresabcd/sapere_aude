@@ -3,3 +3,5 @@ WEDU_PROF wifi te piden los credenciales de ecucamadrid (los portátiles hay que
 eol188@educa.madrid.org VAuWLpwS8J
 eolilop621 WPF5Sz944Q Madrid2025 raices
 e.olivares.abcd@gmail.com
+para imprimir: la de siempre pass y eduardo.olivareslopez
+aplicaciones.sapere@gmail.com para que los chicos descarguen apps en sus tablets. pass: Sapere2025-26

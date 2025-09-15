@@ -1,0 +1,15 @@
+- atención educativa: MARÍA MARTÍNEZ DE AZAGRA MORALES
+- biología y geología: BEATRIZ MOLINA RIVILLA y NATIVIDAD ARAUJO SANCHEZ
+- computación: JUAN MANUEL COLLADO HERNAIZ
+- educación física: CARLOS REGUEIRA GONZÁLEZ
+- francés: 
+- geografía e historia: Laura Ortega Rico y mora. ra. pa. ?
+- inglés avanzado: JULIO DE LA CRUZ SOSA
+- inglés: GEMA MARTÍNEZ DE EGUILAZ
+- lengua: DIEGO VADILLO LÓPEZ y M JESÚS GÓMEZ MAÑAS
+- mates: EDUARDO OLIVARES LÓPEZ y MARTA POZA DUCAJU
+- música: SARA BECERRO VIÑAS
+- plástica: BELÉN MANUEL NARROS
+- refuerzo de mates: CELIA CASTAÑOS-MOLLOR MORCILLO
+- refuerzo de lengua: EVA MARÍA CALVO PASTOR
+- religión: MARÍA LUISA QUINTERO CORREA
