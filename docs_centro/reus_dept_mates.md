@@ -1,0 +1,23 @@
+# 25/09/18
+- fechas de exámenes de pendientes:
+    - jueves 2 de oct a primera los que tienen pendientes de bachillerato el aula aun no sabemos
+    - pendientes eso (hay que ponerlo en el classroom de cada uno y en el classroom de pendientes) 7 de oct
+- divermates:
+    - música y probabilidad
+    - xcoles 10 (tres segundos), jueves 11 (segundos con cuartos), viernes 12 de diciembre (tres cuartos)
+    - nos anima laynez a que vayamos a verlo aunque no nos meta, pq mola mucho
+    - se suele hacer en la D1 
+- ccp:
+    - extraescolares hay que mandar un formulario y demás. si tenemos dudas preguntamos a laynez.
+    - tutorías de familias el día 14 de oct. 1eso y 2eso desde las 5 hasta las 6pm.
+    - evaluación extraordinaria en bach es una nota única y aplasta la de junio (a no ser que pongamos algo en las programaciones). hemos decidido de poner la mejor entre la nota ordinaria y extraordinaria.
+    - aprobar segundo de bach no implica que aprueben primero
+    - planes de recuperación ya los hemos montado nosotros
+    - hacer algo del genocidio de gaza con los chavales?
+    - alumnos que se van 3 semanas a eeuu del 26 de sept al 19 de oct. son solo alumnos de 1 bach. 
+- maría la PT: 
+    - marta va a salir los martes a quinta miercoles a sexta con maria a la ptcera. tb sale en atención educativa. las otras dos le darán tarea y ella no seguirá el ritmo de clase. marta llevará su ritmo aparte. los dos días que esté conmigo haciendo deberes yo voy chequeando que ella vaya trabajando en ellos.
+    - a kerun le vemos si necesita salir o no.
+
+- se ha podido meter alguien al classroom de pendientes de 1bach, MA?
+- alumno que no viene a mi clase?

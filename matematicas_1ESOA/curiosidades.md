@@ -1,0 +1,27 @@
+- sistemas de numeración
+    - vídeo de sistemas de numeración interesantes
+        - ¿Quién inventó los números? ---- https://www.youtube.com/watch?v=2GzNRY2iYNg
+        - ¿Quién inventó el cero? ---- https://www.youtube.com/watch?v=MOtCBPXO698
+        - ¿Sabías por qué usamos estos símbolos para los números arábigos? ---- https://www.youtube.com/watch?v=LllyC6ejqzU
+        - Base twelve number system ---- https://www.youtube.com/watch?v=U6xJfP7-HCc (EN INGLÉS. MUY AVANZADO)
+- problemas y repaso de naturales
+- potencias y raíces
+    - demo de por qué algo elevado a cero es uno
+- divisibilidad
+- números enteros
+- números decimales y problemas
+    - por qué 10 entre 3 da 3.333... pero 3.333... por 3 da 9.999?
+    - significa eso que 10 y 9.999 son el mismo número?
+- fracciones y operaciones con fracciones
+- proporcionalidad y porcentajes
+- patrones y álgebra
+- gráficas y funciones
+- sistema métrico decimal
+- rectas y ángulos
+- figuras geométricas, áreas y perímetros
+    - descubrimos el número pi
+    - descubrimos el número e (aunque no tenga que ver con geometría)
+        - sumamos uno partido por uno factorial mas uno partido por dos factorial mas etc.
+        - canal curiosamente sobre el número e https://www.youtube.com/watch?v=B0Rc7lL6QUg (es muy avanzado para 1eso)
+        - canal derivando sobre el número e https://www.youtube.com/watch?v=Z5czpA-fyMU (es demasiado avanzado para 1eso)
+- estadística y probabilidad

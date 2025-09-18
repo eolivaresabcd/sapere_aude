@@ -13,3 +13,4 @@
 - Cálculo de áreas y perímetros de figuras planas y volúmenes.
 - Relaciones de igualdad y desigualdad y uso de signos < y >.
 - estadística super sencillita y probabilidad
+
