@@ -1,0 +1,28 @@
+- andazabal	gutiérrez	mariana belén
+- barrero	aguiar	jaime
+    - se fue a latin
+    - mates pendiente
+- bellón	monge	ángel
+    - mates pendiente
+- blanco	infantes	mario
+- calero	carvajal	cristina
+- el yosufi	el yosufi	hajar
+- epuras		andrei sorin
+    - le cuesta el idioma
+    - me va a costar corregirle
+- fernández	lópez	roberto
+- gete	mondragón	sebastián
+    - le cuesta pero es buen chaval
+- mazzoleni	cariati	santino
+    - hay que estar encima de el
+- redondo	del olmo	lucas
+- rivera	araujo 	jorge luis
+- sánchez	salas	gonzalo
+    - problemas de audición
+- sanz	escudero	luna
+    - TDAH
+    - hablar a solas para posible adaptación
+    - en principio no va a querer la adaptación
+- vásquez	mejía	kary celinda
+    - mates pendiente
+    - mala relación con la madre
