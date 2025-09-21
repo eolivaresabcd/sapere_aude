@@ -13,16 +13,41 @@
 - fernández	lópez	roberto
 - gete	mondragón	sebastián
     - le cuesta pero es buen chaval
+    - trastorno del aprendizaje
+    - estuvo de trastorno específico del lenguaje
+    - super trabajador
 - mazzoleni	cariati	santino
     - hay que estar encima de el
 - redondo	del olmo	lucas
 - rivera	araujo 	jorge luis
-- sánchez	salas	gonzalo
-    - problemas de audición
+- sanchez salas gonzalo
+    - discapacidad auditiva
+    - TDAH
+    - dermatits
+    - debería llevar audífonos, pero no lo usa
+    - tiene un cacharrito que se puede conectar a un cacharrito que usa el profesor para que él escuche. él mismo lo entrega al profesor para que se use.
+    - tuvo una audición normal hasta 1ESO, que perdió la audición de manera repentina
+    - se cree que sabe más de lo que sabe
+    - tiene apoyo de su abuelo incondicional
+    - los padres van a exigir todas las medidas y van a mirar con lupa los exámenes
+    - que gonzalo firme un compromiso por su parte para que luego no se líen a exigir cosas
+    - que él escriba en el examen "no necesito más tiempo"
+    - ofrecerle siempre adaptaciones de tiempo, más hojas, etc.
 - sanz	escudero	luna
     - TDAH
     - hablar a solas para posible adaptación
     - en principio no va a querer la adaptación
+    - déficit de atención
+    - lectoescritura
+    - no quiere significarse: ni más timepo, ni exámenes adaptados, ni ná
+    - de momento no se aplican mediadas hasta que no quiera
 - vásquez	mejía	kary celinda
     - mates pendiente
     - mala relación con la madre
+    - niña que estubo medio bien el año pasado
+    - salud mental
+    - estuvo algo peor en cuarto de eso
+    - estuvo ingresada
+    - empezó el año pasado una relación con un compi y parece que remontó un poco en su vida
+    - relación con la madre tóxica, pq la madre es muy manipuladora
+    - su estado de ánimo depende mucho de cómo esté con este chaval
