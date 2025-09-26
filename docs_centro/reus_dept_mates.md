@@ -15,9 +15,21 @@
     - planes de recuperación ya los hemos montado nosotros
     - hacer algo del genocidio de gaza con los chavales?
     - alumnos que se van 3 semanas a eeuu del 26 de sept al 19 de oct. son solo alumnos de 1 bach. 
-- maría la PT: 
+- marta la PT: 
     - marta va a salir los martes a quinta miercoles a sexta con maria a la ptcera. tb sale en atención educativa. las otras dos le darán tarea y ella no seguirá el ritmo de clase. marta llevará su ritmo aparte. los dos días que esté conmigo haciendo deberes yo voy chequeando que ella vaya trabajando en ellos.
     - a kerun le vemos si necesita salir o no.
 
-- se ha podido meter alguien al classroom de pendientes de 1bach, MA?
-- alumno que no viene a mi clase?
+# 25/09/25
+- primero y segundo de la eso un 65% para pruebas individuales (exámenes)
+- el resto de cosas un 35%
+- subimos al classroom los criterios de evaluación, para que los vean los chicos
+- hacer grupo de 1 eso con el resto de profes
+
+
+
+
+- qué info hay que rellenar tras las pruebas iniciales?
+
+# TODO
+- adaptacion curricular significativa a marta garcía peláez. jueves que viene la preparamos entre marta y yo.
+- kerun nada. va bien en mates.

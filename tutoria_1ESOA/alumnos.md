@@ -1,20 +1,43 @@
 - aharrar	afkir	fátima
+    - muy bien
+    - se detectaron autolesiones al final de sexto de primaria
+    - madre colaboradora
+    - las de orientación la van a llamar para ver qué onda con las autolesiones
 - alvarez	castillo	paola
+    - buen rendimiento
+    - buen comportamiento
+    - le gusta la soledad
 - alvarez	lozano	julia
+    - bien
 - ardón	pineda	daniela judith (COMPE)
+    - tiene un año más.
+    - pasa por agotar repeticiones
     - Llegó en 5º primaria de Honduras. 
     - Situaciones complicadas en su país. 
+    - expuesta a maltrato de género a su hermana.
     - Nivel muy bajo pero no tiene evaluación aun. 
     - Muy dramática cuando le pasa algo.
     - llega a mitad de curso de 5 primaria de honduras
     - nivel bajísimo
     - se queda con su hermana de 19 años
     - ha vivido cosas muy difíciles para una niña
+    - es de compe
     - dudan de su capacidad pero como el nivel era tan bajo no se le hizo evaluación
     - dramática cuando le pasa algo, pero ya lo han estado trabajando en ello en el cole
     - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
 - britez	villarreo	elena denisse
+    - nivel muy bajo
+    - padres separados
+    - repitió un curso
+    - buen comportamiento
+    - la llamaban "machota"
+    - estaba jugando en el equipo de voley de las bulldog
+    - modificaron una foto suya que pasaron por redes
+    - se mudó al este tras primero de primaria con su padre y al volver al cole bajó mucho el nivel
 - campos	labayru	laia
+    - brillante
+    - tiene un hermano de altas capacidades
+    - podría ser ella altas capacidades?
 - chen		kerun (ACNEAE)
     - Trastorno especifico del lenguaje. 
     - buenos resultados en matemáticas. 
@@ -29,9 +52,18 @@
     - creemos que es hermano de alguna alumna que ha estado aquí
     - parece que hay muy poca supervisión en la familia
     - va a parecer que acaba de aterrizar del avión de china; parece que no sabe nada de castellano, aunque lleva toda la vida en españa
+    - familia despreocupada
+    - pasa mucho tiempo solo en casa
+    - muy difícil contactar con la familia
+    - sus dos hermanas eran absentistas y servicios sociales estuvo encima de la familia mucho
+    - tienen un bazar
 - córdoba	fariñas	antonio alessandro
+    - bien
 - cruz	rabazo	sofía
+    - muy bien
+    - reservada y selectiva
 - durán 	torrecilla	javier
+    - 
 - durán 	torrecilla	oliver
 - durán 	valderrama	daniel estevan
 - ennassri		salma

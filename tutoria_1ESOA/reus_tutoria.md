@@ -8,5 +8,20 @@
     - tema delegado se hace más adelante pq así nos da tiempo a conocer a chavales
     - evaluación 0 es el día 6
 
-- paola despistes?
+# 25/09/26 CÓMO HACER LA PREEVALUACIÓN CON LOS CHAVALES
+- el documento se llama preparación de la evaluación inicial
+    - ahí vienen los programas específicos para repetidores
+    - ahí vienen los anexos para NEE y NEAE
+    - se copia el forms en drive y se sube al classroom de tutoría
+    - lo rellenan en clase de tutoría y nosotros tenemos un scrape de todo
+    - completamos los tutores info en la web del profe (links en el doc)
+    - hay que llevar los anexos de medidas impresos o en digital para rellenar durante la reu de eval 0
+    - cuidado que los anexos son diferentes para cada tipo de NEAE
+    - los de altas capacidades pueden llevar o no un programa de enriquecimiento individual
+    - los tutores coordinamos las sesiones y no hablamos de los chicos de uno en uno. los agrupamos por nivel de importancia y de los que van bien no se habla. muy importante aquí concretar qué hacemos con ellos. hay que especificar las medidas que tomamos con ellos.
+- de mi tutoría E1A:
+    - 
+
+
+
 - duran tarde?
