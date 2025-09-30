@@ -588,3 +588,15 @@ PREPARAR TODO ESTO EL DOMINGO
     - se fue bastante mal, a dos semanas de acabar el curso
     - muchos recreos los pasa en orientación
     - sospecha de altas capacidades
+
+# APROBACIÓN DE OPTATIVIDAD DE NOSEQUÉ
+
+# AUTOPROTECCIÓN (EVACUACIÓN PARA INCENDIOS)
+- si suena un timbre muy alto y prolongado, este indica una evacuación
+- se evacua por las vías verdes (vías de evacuación). están en cartelitos por el centro.
+- profe delante. delegado detrás. siempre en mente que no se quede nadie atrás.
+- salimos en silencio.
+- vamos al punto de encuentro: la rotondita donde se aparca cuando se llega tarde (un poco más allá de los buses)
+- ahí hacemos filas por clases para contar cómodamente.
+- si la alarma sucede en un cambio de clase o en un recreo: todos al patio y se agrupan los alumnos con su clase anterior para el recuento.
+- si la alarma pilla a algún alumno en el baño, que vaya directo al patio y se encuentre con sus compis ahí.
