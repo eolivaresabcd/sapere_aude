@@ -25,6 +25,21 @@
 - subimos al classroom los criterios de evaluación, para que los vean los chicos
 - hacer grupo de 1 eso con el resto de profes
 
+# 25/10/02
+- programaciones para el puente hay que tenerlas listas
+- evaluación 0 presenciales
+- antes de la reu de padres hay que dar la carta de pendientes a los tutores. solo dar esa carta al que no haya aprobado la pendiente. en la carta se explica cómo tienen que recuperar la pendiente.
+- las actividades que hemos subido al classroom de pendientes no hace falta hacerlas para ahora. son para abril. las pueden entregar ahora pero hasta abril no las miramos.
+- se suicidó una chica en verano porque un profe del cole la acosó. así que entrevistas con los alumnos a puerta abierta.
+- programaciones:
+    - voy a intentar tenerla para el 9. a más tardar para el 10 viernes, que haya tiempo para verlas.
+    - tenerlas listas antes del puente. antes del 13 de oct. el 13 no hay clase. el 16 y 17 tampoco.
+    - el nombre de los puntos de las programaciones no los cambiamos en el índice. los cambiamos en el cuerpo del texto.
+    - si el grupo no es reducido quito el punto de grupo reducido
+    - si no hay profe de apoyo, quito el punto del profe de apoyo
+    - este año no hay ámbitos, así que quito ese punto
+    - si hay alguna duda, correo a laynez
+    - en primero de la eso no aparece nada de pendientes. borrarlo.
 
 
 

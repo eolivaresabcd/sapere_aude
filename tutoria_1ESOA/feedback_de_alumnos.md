@@ -1,0 +1,1 @@
+- charo ferreira aparicio (creen que es profe de reli o de lengua) fue un poco intransigente.

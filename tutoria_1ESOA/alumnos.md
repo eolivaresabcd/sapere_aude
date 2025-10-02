@@ -3,6 +3,7 @@
     - se detectaron autolesiones al final de sexto de primaria
     - madre colaboradora
     - las de orientación la van a llamar para ver qué onda con las autolesiones
+    - estuvieron a punto de meterla en altas capacidades pero cita "me hice un poco la tonta para dar lo mismo que mis compis porque mis padres me exigían mucho".
 - alvarez	castillo	paola
     - buen rendimiento
     - buen comportamiento
@@ -106,7 +107,9 @@
     - tiene heramana más pequeña y se relaciona con las niñas
     - hay que cuidarlo un poco en clase
     - padres separados, pero muy implicados
+    - le da mucho miedo el fuego y en primaria le avisaban de cuando iba a haber simulacros de incendio con antelación
 - garcía	peláez	marta (DEA: TDAH y TEL)
+    - no admite fotos ni vídeos
     - Hermana de Noemí. 
     - Es la pequeña de 4 hermanos, hace unos años tuvieron que ser acogidos por un tío en el pardillo en 2016. 
     - 6 niños en casa. 
@@ -134,6 +137,7 @@
 - hernández	sánches	adriana
 - lanni	paradas	marcello
 - martínez	agudelo	juanita
+    - se adelantó un curso y no ha aprendido bien a dividir en largo
 - pascual	rodríguez	olivia
 - sanz	jara	luna
 - sesin		alí

@@ -30,4 +30,5 @@
             - hay info y la hoja de inscripción (se imprime, se rellena, se firma)
 
 
-    - etc. (continuará)
+- propuestas / ideas para tutorías futuras:
+    - tony propone: que cada alumno haga una ppt para presentarse a sus compis?
