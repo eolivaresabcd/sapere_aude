@@ -108,7 +108,7 @@
     - hay que cuidarlo un poco en clase
     - padres separados, pero muy implicados
     - le da mucho miedo el fuego y en primaria le avisaban de cuando iba a haber simulacros de incendio con antelación
-- garcía	peláez	marta (DEA: TDAH y TEL)
+- garcía	peláez	marta (DEA: TDA y TEL)
     - no admite fotos ni vídeos
     - Hermana de Noemí. 
     - Es la pequeña de 4 hermanos, hace unos años tuvieron que ser acogidos por un tío en el pardillo en 2016. 
@@ -136,6 +136,15 @@
 - guzmán	mejía	kristen ariana
 - hernández	sánches	adriana
 - lanni	paradas	marcello
+    - llegado nuevo de venezuela
+    - vive en brunete
+    - no va mal pero es un poco vaguillo
+    - a veces resuelve las cosas con las manos, pero rara vez. bruto en los juegos.
+    - se adaptó más o menos bien al grupo
+    - bastantes ausencias
+    - dos hermanos mayores
+    - nivel de inglés muy bajo
+    - le costaba reconocer los errores que cometía
 - martínez	agudelo	juanita
     - se adelantó un curso y no ha aprendido bien a dividir en largo
 - pascual	rodríguez	olivia

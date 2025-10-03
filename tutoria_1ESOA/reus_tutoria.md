@@ -22,6 +22,8 @@
 - de mi tutoría E1A:
     - 
 
-
+# 03/10/26
+- isabel psc contactar con ella para problemas de absentismo (marcello?)
+- nos darán un documento de plan de repetidores para que rellenemos. los repetidores tienen un plan de repetición específico. nos darán las notas competenciales y en cuales tenemos que incidir más.
 
 - duran tarde?
