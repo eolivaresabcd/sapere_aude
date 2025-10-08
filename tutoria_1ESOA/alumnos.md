@@ -58,6 +58,11 @@
     - muy difícil contactar con la familia
     - sus dos hermanas eran absentistas y servicios sociales estuvo encima de la familia mucho
     - tienen un bazar
+
+- kerun ubicación en primeras filas no en geo e hist y no en mates
+- uso de calcu no
+- apoyo de PT y AL (que no están marcados)
+
 - córdoba	fariñas	antonio alessandro
     - bien
 - cruz	rabazo	sofía
@@ -68,7 +73,7 @@
 - durán 	torrecilla	oliver
 - durán 	valderrama	daniel estevan
 - ennassri		salma
-- escribano	sarmiento	antonio (DEA)
+- escribano	sarmiento	antonio (otras DEA)
     - Mala caligrafía, despistado, desastre con el material. 
     - divertido. 
     - solo por las tardes en casa y trabaja poco.
@@ -78,7 +83,7 @@
     - divertido
     - media de bien
     - solo por las tardes en casa y trabaja poco
-- fernández	san martín	mikel (DEA: TDAH)
+- fernández	san martín	mikel (DEA: TDAH y ¿dislexia?)
     - Sensible
     - familia colaboradora. 
     - Sin ayuda no es capaz de realizar una prueba. 
@@ -108,6 +113,16 @@
     - hay que cuidarlo un poco en clase
     - padres separados, pero muy implicados
     - le da mucho miedo el fuego y en primaria le avisaban de cuando iba a haber simulacros de incendio con antelación
+
+    - mikel capturas con la tablet
+- compañera olivia pascual
+- anticipar lecturas para que las prepare en clase
+- en las pruebas nada de colores diferentes
+- avisar antes en los simulacros
+- secuenciarle las tareas
+- en mates utilizaba plantillas para el cambio de unidades
+- mikel necesitaría traducción en asignaturas bilingues
+
 - garcía	peláez	marta (DEA: TDA y TEL)
     - no admite fotos ni vídeos
     - Hermana de Noemí. 
@@ -133,6 +148,9 @@
     - marta toma medicación pero no acaban de encontrar la adecuada que le haga el efecto óptimo
     - están en revisión en puerta de hierro
     - va a necesitar adaptación en Lengua, Mates, Inglés, como mínimo. las demás ya vamos viendo.
+
+- marta adaptacion curricular significativa en mates, geo hist, bio y geo, plastica (esto por la ptcera)
+
 - guzmán	mejía	kristen ariana
 - hernández	sánches	adriana
 - lanni	paradas	marcello

@@ -11,7 +11,7 @@
     - le cuesta el idioma
     - me va a costar corregirle
 - fernández	lópez	roberto
-- gete	mondragón	sebastián
+- gete	mondragón	sebastián (trastorno del aprendizaje y antiguo TEL)
     - le cuesta pero es buen chaval
     - trastorno del aprendizaje
     - estuvo de trastorno específico del lenguaje
@@ -20,7 +20,7 @@
     - hay que estar encima de el
 - redondo	del olmo	lucas
 - rivera	araujo 	jorge luis
-- sanchez salas gonzalo
+- sanchez salas gonzalo (tdah y discapacidad auditiva. en primera fila y más tiempo en exámenes.)
     - discapacidad auditiva
     - TDAH
     - dermatits
@@ -33,7 +33,7 @@
     - que gonzalo firme un compromiso por su parte para que luego no se líen a exigir cosas
     - que él escriba en el examen "no necesito más tiempo"
     - ofrecerle siempre adaptaciones de tiempo, más hojas, etc.
-- sanz	escudero	luna
+- sanz	escudero	luna (tdah - más tiempo en exams si ella quiere y sin decirlo en alto)
     - TDAH
     - hablar a solas para posible adaptación
     - en principio no va a querer la adaptación
@@ -41,7 +41,7 @@
     - lectoescritura
     - no quiere significarse: ni más timepo, ni exámenes adaptados, ni ná
     - de momento no se aplican mediadas hasta que no quiera
-- vásquez	mejía	kary celinda
+- vásquez	mejía	kary celinda (salud mental)
     - mates pendiente
     - mala relación con la madre
     - niña que estubo medio bien el año pasado
