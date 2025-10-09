@@ -41,9 +41,8 @@
     - si hay alguna duda, correo a laynez
     - en primero de la eso no aparece nada de pendientes. borrarlo.
 
-
-
-- qué info hay que rellenar tras las pruebas iniciales?
+# 25/10/09
+- hablamos de los exámenes de pendientes de la primera convocatoria. problemilla al no poner que entraba geometría pero lo pusimos en los exámenes. para ahorrarnos broncas ponemos dos notas: una contando con la parte de geometría y otra sin ella. nos quedamos con la mejor de las dos. hay otra convocatoria en abril que es la segunda y última oportunidad para recuperar las pendientes.
 
 # TODO
 - adaptacion curricular significativa a marta garcía peláez. jueves que viene la preparamos entre marta y yo.
