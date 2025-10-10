@@ -1,3 +1,10 @@
+tutores de 1eso:
+- maría: orientadora
+- diego
+- adri
+- sonia: trabajadora social
+- isabel: psc
+
 # 25/09/19
 - sonia es la integradora social y trabaja en el aula tea (atrévete) con los alumnos tea
 - nos presenta los talleres de sensibilización:
@@ -26,4 +33,29 @@
 - isabel psc contactar con ella para problemas de absentismo (marcello?)
 - nos darán un documento de plan de repetidores para que rellenemos. los repetidores tienen un plan de repetición específico. nos darán las notas competenciales y en cuales tenemos que incidir más.
 
-- duran tarde?
+# 10/10/26
+- en el dept de orientacion está todo lo de las reuniones con padres
+- en la web del profesor tb hay plantilla para apuntar todo lo que hablas con los padres
+- leer guion base que apoya a la presentación que vamos a poner
+- tunear la ppt para personalizarla con mis datos y proyectarla a los padres
+- la reunión es de grupo. no se van a tratar temas individuales.
+- todas las cuestiones importantes, lo ideal es que pasen por mi primero y yo ya derivo a orientación o lo que sea
+- 1eso es adaptación a secundaria. mucho cambio en el insti. cambios en el cuerpo, intereses, etc.
+- 1eso es muy fácil y hay que dedicarse a consolidar hábitos de estudio. eso es lo más importante.
+- contar cómo es el grupo
+- en primaria no hay tutoría, pero en secundaria sí. explicar qué hacemos.
+- somos centro preferente de escolarización de TEA.
+- no detenerme en el PAT de 3º y 4º. solo que vean que hay una continuidad
+- tema asistencia: roble. ellos informan del motivo y el profe decide justificar o no. en principio hay que justificar con justificante de asistencia al centro médico.
+- llegado a un número determinado de faltas se manda un aviso a casa. si el alumno falta mucho no se le puede evaluar por falta de asistencia. el segundo aviso se lleva a la mesa de absentismo y se ve que recursos del municipio se pueden movilizar para ayudar a paliar este absentismo.
+- algunos padres no tienen las credenciales de roble. lo tienen que solicitar en el correo raices@iessapereaude.com
+- maría martínez azagra es la orientadora
+- comunicación con las familias: que soliciten entrevista a través del correo electrónico. nosotros haremos lo mismo.
+- a través del classroom de la tutoría van viendo info de cosas que vamos haciendo en tutoría
+- ellos pueden solicitar hablar con profes específicos, aunque está bien que me pongan a mí en copia en el examen
+- las entrevistas también pueden ser telefónicas
+- antes lo llevaban los conserjes pero ahora no es así
+- las citas en principio son en la hora reservada para padres, pero se puede hacer fuera de horario también si a todos nos vienen bien
+- igual sacan el tema los padres de la chica que se suicidó por abusos de un profe.
+- hay que ver a todos los alumnos al menos una vez en todo el curso. en la web del profe tenemos tb plantilla para rellenar tras reuniones individuales con alumnos. si no hubiera plantilla, hacemos una tabla similar a la de los padres y palante. 
+- necesitamos la colaboración de los padres sobre todo para establecer hábitos y rutinas, sueño, alimentación, higiene, buen uso de las tecnologías, etc. son menores y a esta edad algunos ya consumen pornografía. el dispositivo es suyo y no de los niños.
