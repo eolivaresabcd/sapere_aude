@@ -5,3 +5,4 @@ eolilop621 WPF5Sz944Q Madrid2025 raices
 e.olivares.abcd@gmail.com
 para imprimir: la de siempre pass y eduardo.olivareslopez
 aplicaciones.sapere@gmail.com para que los chicos descarguen apps en sus tablets. pass: Sapere2025-26
+cursos anpe: e.olivares.abcd user; pass: la de siempre
