@@ -44,6 +44,16 @@
 # 25/10/09
 - hablamos de los exámenes de pendientes de la primera convocatoria. problemilla al no poner que entraba geometría pero lo pusimos en los exámenes. para ahorrarnos broncas ponemos dos notas: una contando con la parte de geometría y otra sin ella. nos quedamos con la mejor de las dos. hay otra convocatoria en abril que es la segunda y última oportunidad para recuperar las pendientes.
 
-# TODO
-- adaptacion curricular significativa a marta garcía peláez. jueves que viene la preparamos entre marta y yo.
-- kerun nada. va bien en mates.
+# 25/10/23
+- nos dicen que hay que dejar tareas para las guardias. 
+    - metemos tarea en classroom para los chavales siempre
+    - las extra, para que hagan si han terminado deberes, metemos en un link que nos pasa noe.
+- fechas globales:
+    - 1 eso 25 noviembre (Noelia)
+    - 2 eso 20 noviembre (Miguel ángel)
+    - 3 eso 24L o 25M noviembre (Miguel Laynez)
+    - 4 eso 20 noviembre (pilar)
+    - 1 Bach II 25 nov (Noelia)
+    - 1 Bach sociales 20 noviembre (celia)
+    - 2 Bach II (luz) 
+    - 2 Bach sociales (Edu y Miguel a)

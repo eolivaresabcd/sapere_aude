@@ -1,9 +1,13 @@
 tutores de 1eso:
 - maría: orientadora
+- sara: la de música
 - diego
 - adri
 - sonia: trabajadora social
 - isabel: psc
+- alex: educador
+- sonia: trabajadora social
+- paloma morate: (la del synapse) NO ESTÁ EN LAS REUS
 
 # 25/09/19
 - sonia es la integradora social y trabaja en el aula tea (atrévete) con los alumnos tea
@@ -59,3 +63,31 @@ tutores de 1eso:
 - igual sacan el tema los padres de la chica que se suicidó por abusos de un profe.
 - hay que ver a todos los alumnos al menos una vez en todo el curso. en la web del profe tenemos tb plantilla para rellenar tras reuniones individuales con alumnos. si no hubiera plantilla, hacemos una tabla similar a la de los padres y palante. 
 - necesitamos la colaboración de los padres sobre todo para establecer hábitos y rutinas, sueño, alimentación, higiene, buen uso de las tecnologías, etc. son menores y a esta edad algunos ya consumen pornografía. el dispositivo es suyo y no de los niños.
+
+# 25/10/24
+- presentación del viaje de inmersión en inglés para primero de la eso (verlo en tutoría)
+    - hay escalada, multideporte, etc
+    - difundirla a los chavales
+    - es del 15 al 18 de junio
+- tenemos que tener hechas ya las normas de aula (subo a classroom las normas acordadas)
+    - se hace mural en canva o se cuelga en clase y se manda a jeaftura
+- tb hay que hacer la elección de delegados
+    - el delegado se compromete a acudir a las juntas (a veces se pierden recreos!)
+- club de compañeros:
+    - tengo que presentar a dos (dos amigos o dos amigas)
+    - alumnos top en lo social (no necesariamente en lo académico)
+    - empáticos, asertivos, prosociales
+    - son ayudantes y mediadores
+- alex se va a pasar por las tutorías para hablar del club de compañeros y las comisiones
+    - las comisiones hay una presentación en orientación en el título "mejora de la convivencia"
+    - en las comisiones también hay reuniones fuera de horario. hay dos o tres reuniones al mes.
+    
+
+
+Comunicación personal: madre, pedagoga terapéutica (PT) y Tutor
+
+MOTIVO: Medidas Específicas Asignaturas para alumno TEL.
+
+PROBLEMAS DETECTADOS: Alumna atendida por psicólogo y psiquiatra del hospital puerta de hierro. no duerme durante la noche y está adormilada durante las clases. 
+
+ACUERDOS TOMADOS: Registrados en el Anexo entregado a la familia. Se le guia el aprendizaje en geo, hist, bio, geo. Se le permite subir tareas aunque finalice el plazo. 
