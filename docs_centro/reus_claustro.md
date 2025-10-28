@@ -600,3 +600,6 @@ PREPARAR TODO ESTO EL DOMINGO
 - ahí hacemos filas por clases para contar cómodamente.
 - si la alarma sucede en un cambio de clase o en un recreo: todos al patio y se agrupan los alumnos con su clase anterior para el recuento.
 - si la alarma pilla a algún alumno en el baño, que vaya directo al patio y se encuentre con sus compis ahí.
+
+# 2025/10/28: OBJETIVOS PGA y Plan de Mejora Contínua
+- expulsar a un alumno de clase tiene que ir acompañado de un parte

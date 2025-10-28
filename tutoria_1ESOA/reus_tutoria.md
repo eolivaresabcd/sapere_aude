@@ -7,6 +7,7 @@ tutores de 1eso:
 - isabel: psc
 - alex: educador
 - sonia: trabajadora social
+- bea: la de rizos super maja de biogeo
 - paloma morate: (la del synapse) NO ESTÁ EN LAS REUS
 
 # 25/09/19
@@ -87,6 +88,8 @@ tutores de 1eso:
 Comunicación personal: madre, pedagoga terapéutica (PT) y Tutor
 
 MOTIVO: Medidas Específicas Asignaturas para alumno TEL.
+
+TEMAS TRATADOS: 
 
 PROBLEMAS DETECTADOS: Alumna atendida por psicólogo y psiquiatra del hospital puerta de hierro. no duerme durante la noche y está adormilada durante las clases. 
 
