@@ -85,12 +85,12 @@ tutores de 1eso:
     
 
 
-Comunicación personal: madre, pedagoga terapéutica (PT) y Tutor
+Comunicación telefónica: padre, profe de mates.
 
-MOTIVO: Medidas Específicas Asignaturas para alumno TEL.
+MOTIVO: Medidas de Atención a la Diversidad no aplicadas en el Parcial de Matemáticas
 
-TEMAS TRATADOS: 
+TEMAS TRATADOS: Tras un correo en el que se muestra la preocupación de los padres de Gonzalo por no haberse aplicado medidas rederentes al formato de letra y espaciado en el examen, el profe de mates realiza una llamada al padre. Ofrece tranquilidad al pedir perdón por el error y al constatar que el examen carece de un peso significativo para la nota final. Se compromete a que el error no se vuelva a repetir. Indica todas las medidas de atención individual ofrecidas a Gonzalo durante las clases, al margen de las relativas al examen: preguntas frecuentes, sitio en primera fila, aclaraciones sobre los enunciados durante las actividades de aula o los exámenes, etc.
 
-PROBLEMAS DETECTADOS: Alumna atendida por psicólogo y psiquiatra del hospital puerta de hierro. no duerme durante la noche y está adormilada durante las clases. 
+PROBLEMAS DETECTADOS: Gonzalo necesita seguridad en sí mismo y que se le haga participar con frecuencia para no perder la atención.
 
-ACUERDOS TOMADOS: Registrados en el Anexo entregado a la familia. Se le guia el aprendizaje en geo, hist, bio, geo. Se le permite subir tareas aunque finalice el plazo. 
+ACUERDOS TOMADOS: El profesor se compromete a entregar a Gonzalo exámenes bien adaptados y a ponerle en primera fila durante las clases, para asegurarse de que atiende correctamente, sin distracciones.

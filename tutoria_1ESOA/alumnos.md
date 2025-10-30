@@ -73,7 +73,7 @@
 - durán 	torrecilla	oliver
 - durán 	valderrama	daniel estevan
 - ennassri		salma
-- escribano	sarmiento	antonio (otras DEA)
+- escribano	sarmiento	antonio (otras DEA) dicasa0408@yahoo.es 654950748 636403768
     - Mala caligrafía, despistado, desastre con el material. 
     - divertido. 
     - solo por las tardes en casa y trabaja poco.
@@ -83,7 +83,7 @@
     - divertido
     - media de bien
     - solo por las tardes en casa y trabaja poco
-- fernández	san martín	mikel (DEA: TDAH y ¿dislexia?)
+- fernández	san martín	mikel (DEA: TDAH y ¿dislexia?) 678945749
     - Sensible
     - familia colaboradora. 
     - Sin ayuda no es capaz de realizar una prueba. 
