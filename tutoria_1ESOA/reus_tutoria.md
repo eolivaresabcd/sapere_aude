@@ -82,15 +82,73 @@ tutores de 1eso:
 - alex se va a pasar por las tutorías para hablar del club de compañeros y las comisiones
     - las comisiones hay una presentación en orientación en el título "mejora de la convivencia"
     - en las comisiones también hay reuniones fuera de horario. hay dos o tres reuniones al mes.
+
+# 25/10/31 charla sobre suicidio
+- se suicidan 3 veces más los hombres que las mujeres pero las mujeres lo intentan más
+- los 6 primeros meses después del primer intento de suicidio tienen alta probabilidad de reincidencia
+- este año se han abierto dos protocolos antisuicidio
+- autolesiones y autoliquidacion se han separado por la comunidad de madrid
+- no hay que descubrir por qués ni hacemos juicios de valor
+- validamos siempre sus sentimientos aunque para nosotros no sean significativos
+- transmitimos la idea de "yo estoy aquí" pero sin agobiar al alumno
+- si yo no estoy preparado para hablar del suicidio con la persona, llamo a alguien que crea que lo esté
+- postura corporal
+- evitar sobreprotección porque refuerza la fragilidad
+- no guardar confidencialidad. comentar que contarlo a los profes y a los padres es una manera de proteger
+- echar un vistazo a la guía de prevención suicida en el apartado de orientación
+- echarle un vistazo a las señales verbales y no verbales de suicidio: 
+- "no tiene arreglo, mi vida es un asco, no puedo más, quiero desaparecer, no quiero seguir viviendo"
+- si piensan suicidarse tienden a despedirse
+- si sospechamos que la persona tiene de verdad la idea de suicidarse hay que preguntar cómo e indagar
+- atención a cambios repentinos de la conducta de los chavales
+- 900 14 30 00 y 024 y teléfono de la esperanza son tres teléfonos para la prevención del suicidio
+- chicos en protocolo (están las cosas colgadas en Orientación): 
+    - antonella cancho 3diverA (observar en el aula y que salga siempre acompañada si quiere ir a Atrévete)
+        - esta no tiene tanto riesgo
+    - noelia encizo (2esoE) autolesiones. Atrévete acompañada.
+        - con esta cuidado
+    - nora lahar (4diver) control de faltas, entrada y salida. si falta se avisa a jefatura. siempre acompañada.
+        - ha empezado a fumar muchos porros
+        - situación familiar super complicada
+        - tiene que pasar por jefatura para ir al baño
+    - vega martín (3esoD) puede ir sola al baño pero control de faltas de asistencia, entradas y salidas
+        - siempre acompañada a jefatura o enfermería
+    - irene picón (1bachE) acompañada si quiere ir a Atrévete
+        - situación en casa horrible
+        - no parece estar mal, pero lo está
+        - se han ido del cole sus profes referentes de confianza
+        - de momento solo está en observación
+    - raúl mata (3esoD) acompañado al Atrévete
+        - altas capacidades pero ideación suicida. es TEA
+        - entró bien, pero últimamente se está comportando raro: siempre tiene que ir al profe a contarle algo
+    - maría sevillano (4esoA) autolesiones, observarla
+        - muchísima exigencia por parte de la familia de resultados académicos y demás
+        - con las notas se puede venir muy abajo
+    - jorge soler (4esoB) acompañado al Atrévete 
+        - niño TEA con dificultades de relación con sus iguales. esto le desbarata mucho
+        - parece que ha ido mejorando
+    - kary vázquez (2bach) ha estado ingresada. Atrévete acompañada.
+        - está bien este año al parecer
+        - puede haber cierto agobio por las notas de bach
+    - elena díaz (2esoD) autolesiones. Acompañada. tiene que ir por jefatura primero para ir al baño.
+        - protocolo nuevo de este año
+        - autolesiones y tuvo que ir a la enfermería del cole
+        - tiene una situación familiar horrible
+        - para baño tiene que ir a jefatura y siempre acompañada
+        - no le gustan nada las orientadoras
+        - se lleva bastante bien con su tutora victoria
+    - daria leonte (2esoB) ideación suidica pero riesgo bajo. acompañada a todos lados. 
+        - protocolo nuevo de este año
+        - ingresada en el hospi de puerta de hierro por ideación suicida
     
 
 
-Comunicación telefónica: padre, profe de mates.
+Comunicación telefónica: madre, tutor.
 
-MOTIVO: Medidas de Atención a la Diversidad no aplicadas en el Parcial de Matemáticas
+MOTIVO: Marcello no entrega los deberes.
 
-TEMAS TRATADOS: Tras un correo en el que se muestra la preocupación de los padres de Gonzalo por no haberse aplicado medidas rederentes al formato de letra y espaciado en el examen, el profe de mates realiza una llamada al padre. Ofrece tranquilidad al pedir perdón por el error y al constatar que el examen carece de un peso significativo para la nota final. Se compromete a que el error no se vuelva a repetir. Indica todas las medidas de atención individual ofrecidas a Gonzalo durante las clases, al margen de las relativas al examen: preguntas frecuentes, sitio en primera fila, aclaraciones sobre los enunciados durante las actividades de aula o los exámenes, etc.
+TEMAS TRATADOS: En general está contento. Tiene buena relación con los compañeros. Tiene un perfil de líder.
 
-PROBLEMAS DETECTADOS: Gonzalo necesita seguridad en sí mismo y que se le haga participar con frecuencia para no perder la atención.
+PROBLEMAS DETECTADOS: Tiene mucha tarea sin entregar o entregada fuera de tiempo.
 
-ACUERDOS TOMADOS: El profesor se compromete a entregar a Gonzalo exámenes bien adaptados y a ponerle en primera fila durante las clases, para asegurarse de que atiende correctamente, sin distracciones.
+ACUERDOS TOMADOS: La madre se compromete a chequear a diario Google Classroom con su hijo para comprobar si hay tarea pendiente y así no fallar en las entregas. El tutor se compromete a estar encima de Marcello en lo relativo al trabajo diario y a avisar a la familia si el problema persiste.

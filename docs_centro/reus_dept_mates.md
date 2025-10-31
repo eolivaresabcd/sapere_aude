@@ -57,3 +57,17 @@
     - 1 Bach sociales 20 noviembre (celia)
     - 2 Bach II (luz) 
     - 2 Bach sociales (Edu y Miguel a)
+
+# 25/10/30
+- chicos en protocolo (están las cosas colgadas en Orientación): 
+    - antonella cancho 3diverA (observar en el aula y que salga siempre acompañada si quiere ir a Atrévete)
+    - noelia encizo (2esoE) autolesiones. Atrévete acompañada.
+    - nora lahar (4diver) control de faltas, entrada y salida. si falta se avisa a jefatura. siempre acompañada.
+    - vega martín (3esoD) puede ir sola al baño pero control de faltas de asistencia, entradas y salidas
+    - irene picón (1bachD) acompañada si quiere ir a Atrévete
+    - raúl mata (3esoD) acompañado al Atrévete
+    - maría sevillano (4esoA) autolesiones, observarla
+    - jorge soler (4esoB) acompañado al Atrévete 
+    - kary vázquez (2bach) ha estado ingresada. Atrévete acompañada.
+    - elena díaz (2esoD) autolesiones. Acompañada. tiene que ir por jefatura primero para ir al baño.
+    - daria leonte (2esoB) ideación suidica pero riesgo bajo. acompañada a todos lados. 

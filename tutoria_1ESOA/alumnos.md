@@ -4,7 +4,7 @@
     - madre colaboradora
     - las de orientación la van a llamar para ver qué onda con las autolesiones
     - estuvieron a punto de meterla en altas capacidades pero cita "me hice un poco la tonta para dar lo mismo que mis compis porque mis padres me exigían mucho".
-- alvarez	castillo	paola
+- alvarez	castillo	paola 636137051 (elia) 680297215
     - buen rendimiento
     - buen comportamiento
     - le gusta la soledad
@@ -26,7 +26,7 @@
     - dudan de su capacidad pero como el nivel era tan bajo no se le hizo evaluación
     - dramática cuando le pasa algo, pero ya lo han estado trabajando en ello en el cole
     - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
-- britez	villarreo	elena denisse
+- britez	villarreo	elena denisse 622020987 622542447 (denis)
     - nivel muy bajo
     - padres separados
     - repitió un curso
@@ -63,7 +63,7 @@
 - uso de calcu no
 - apoyo de PT y AL (que no están marcados)
 
-- córdoba	fariñas	antonio alessandro
+- córdoba	fariñas	antonio alessandro 620756466 633252160 (cristhel mama)
     - bien
 - cruz	rabazo	sofía
     - muy bien
@@ -153,7 +153,7 @@
 
 - guzmán	mejía	kristen ariana
 - hernández	sánches	adriana
-- lanni	paradas	marcello
+- lanni	paradas	marcello 652670080 (madre marcello)
     - llegado nuevo de venezuela
     - vive en brunete
     - no va mal pero es un poco vaguillo
@@ -171,3 +171,14 @@
 - silva	martínez	valentina
 - vaquero	arteaga	sergio (mote: gio)
     - cumple: 2025/09/10
+
+
+Comunicación telefónica: madre, tutor.
+
+MOTIVO: Marcello no entrega los deberes.
+
+TEMAS TRATADOS: En general está contento. Tiene buena relación con los compañeros. Tiene un perfil de líder.
+
+PROBLEMAS DETECTADOS: Tiene mucha tarea sin entregar o entregada fuera de tiempo.
+
+ACUERDOS TOMADOS: La madre se compromete a chequear a diario Google Classroom con su hijo para comprobar si hay tarea pendiente y así no fallar en las entregas. El tutor se compromete a estar encima de Marcello en lo relativo al trabajo diario y a avisar a la familia si el problema persiste.
