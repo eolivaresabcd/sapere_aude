@@ -84,6 +84,8 @@
     - media de bien
     - solo por las tardes en casa y trabaja poco
 - fernández	san martín	mikel (DEA: TDAH y ¿dislexia?) 678945749
+    - padre: Alfredo
+    - madre:
     - Sensible
     - familia colaboradora. 
     - Sin ayuda no es capaz de realizar una prueba. 
@@ -173,12 +175,16 @@
     - cumple: 2025/09/10
 
 
-Comunicación telefónica: madre, tutor.
+Comunicación presencial: madre, tutor.
 
-MOTIVO: Marcello no entrega los deberes.
+MOTIVO: Entregar Anexo VI: DEA
 
-TEMAS TRATADOS: En general está contento. Tiene buena relación con los compañeros. Tiene un perfil de líder.
+TEMAS TRATADOS: Mikel se comporta bien en clase.
 
-PROBLEMAS DETECTADOS: Tiene mucha tarea sin entregar o entregada fuera de tiempo.
+PROBLEMAS DETECTADOS: Le cuesta mucho mantener la atención.
 
-ACUERDOS TOMADOS: La madre se compromete a chequear a diario Google Classroom con su hijo para comprobar si hay tarea pendiente y así no fallar en las entregas. El tutor se compromete a estar encima de Marcello en lo relativo al trabajo diario y a avisar a la familia si el problema persiste.
+ACUERDOS TOMADOS: Se firma Anexo y se adjunta al expediente de Mikel.
+
+- paola con amiga maria del C nueva antigua amiga de balet
+- julia alvarez y valentina
+- introvert pero alegre si pilla confis
