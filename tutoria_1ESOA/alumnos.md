@@ -175,15 +175,15 @@
     - cumple: 2025/09/10
 
 
-Comunicación presencial: madre, tutor.
+Comunicación presencial: padre, madre, tutor.
 
 MOTIVO: Entregar Anexo VI: DEA
 
-TEMAS TRATADOS: Mikel se comporta bien en clase.
+TEMAS TRATADOS: Mikel se comporta bien en clase generalmente, aunque tiene algún que otro encontronazo con algún profesor. Contenta en general con el insti y los compis pero algo descentrada en lo académico.
 
-PROBLEMAS DETECTADOS: Le cuesta mucho mantener la atención.
+PROBLEMAS DETECTADOS: Le cuesta mucho mantener la atención. Está empezando a desarrollar una "actitud desafiante" típica de la adolescencia.
 
-ACUERDOS TOMADOS: Se firma Anexo y se adjunta al expediente de Mikel.
+ACUERDOS TOMADOS: Se firma Anexo y se adjunta al expediente de Mikel. Se manda correo a todos los profesores, poniendo en copia al Departamento de Orientación. Se comenta en dicho correo todas las autoinstrucciones de las que dispone Mikel. Se incita a los profes a que le animen a sacarlas porque le da vergu y no lo hace si no se le pide.
 
 - paola con amiga maria del C nueva antigua amiga de balet
 - julia alvarez y valentina
