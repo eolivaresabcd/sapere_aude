@@ -71,3 +71,7 @@
     - kary vázquez (2bach) ha estado ingresada. Atrévete acompañada.
     - elena díaz (2esoD) autolesiones. Acompañada. tiene que ir por jefatura primero para ir al baño.
     - daria leonte (2esoB) ideación suidica pero riesgo bajo. acompañada a todos lados. 
+
+# 25/11/06
+- ana luisa es la sustituta de marta la PT
+- hemos puesto en común las novedades para la PAU

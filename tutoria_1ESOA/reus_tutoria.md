@@ -141,7 +141,13 @@ tutores de 1eso:
         - protocolo nuevo de este año
         - ingresada en el hospi de puerta de hierro por ideación suicida
     
-
+# 25/11/07
+- María nos anima a hacer círculos de diálogo en las clases de Tutoría.
+    - se da peluche para dar turno de palabra.
+    - solo se permite hablar de lo que uno siente o piensa. nunca sobre lo que hacen los demás.
+    - a chatgpt: quiero hacer un círculo de diálogo sobre prácticas restaurativas, sobre el tema de nosequé.
+    - 
+- Tenemos aún por hacer la sesión sobre el miedo.
 
 Comunicación telefónica: madre, tutor.
 

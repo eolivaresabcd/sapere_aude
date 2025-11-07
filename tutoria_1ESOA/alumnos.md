@@ -26,7 +26,8 @@
     - dudan de su capacidad pero como el nivel era tan bajo no se le hizo evaluación
     - dramática cuando le pasa algo, pero ya lo han estado trabajando en ello en el cole
     - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
-- britez	villarreo	elena denisse 622020987 622542447 (denis)
+- britez	villarreo	elena denisse 622020987 622542447 (denis) enmanuelbritez98@gmail.com
+    - 665645168 ESTE ES EL NÚMERO AL QUE HAY QUE LLAMAR
     - nivel muy bajo
     - padres separados
     - repitió un curso
@@ -71,7 +72,7 @@
 - durán 	torrecilla	javier
     - 
 - durán 	torrecilla	oliver
-- durán 	valderrama	daniel estevan
+- durán 	valderrama	daniel estevan 656284317 656284317
 - ennassri		salma
 - escribano	sarmiento	antonio (otras DEA) dicasa0408@yahoo.es 654950748 636403768
     - Mala caligrafía, despistado, desastre con el material. 
@@ -169,22 +170,25 @@
     - se adelantó un curso y no ha aprendido bien a dividir en largo
 - pascual	rodríguez	olivia
 - sanz	jara	luna
-- sesin		alí
+- sesin		alí 
+    - madre Magalí: 643508165 magaliali13@gmail.com
+    - padre: 607388991
+    - delante si puede ser. ni tony ni marta ni kerun. 
 - silva	martínez	valentina
-- vaquero	arteaga	sergio (mote: gio)
+- vaquero	arteaga	sergio (mote: gio) 654868855 616339134
     - cumple: 2025/09/10
 
 
-Comunicación presencial: padre, madre, tutor.
+Comunicación telefónica: madre, tutor.
 
-MOTIVO: Entregar Anexo VI: DEA
+MOTIVO: Ali no atiende ni trabaja en clase.
 
-TEMAS TRATADOS: Mikel se comporta bien en clase generalmente, aunque tiene algún que otro encontronazo con algún profesor. Contenta en general con el insti y los compis pero algo descentrada en lo académico.
+TEMAS TRATADOS: Varios profes se quejan de su pasividad. En casa le han puesto un Tutor que le ayuda a llevar las tareas al día. Le han hecho pruebas de TDAH y Autismo pero son inconcluyentes. La madre sugiere que tomemos medidas que puedan ayudarle a mantener la atención.
 
-PROBLEMAS DETECTADOS: Le cuesta mucho mantener la atención. Está empezando a desarrollar una "actitud desafiante" típica de la adolescencia.
+PROBLEMAS DETECTADOS: Ali no atiende ni trabaja en clase.
 
-ACUERDOS TOMADOS: Se firma Anexo y se adjunta al expediente de Mikel. Se manda correo a todos los profesores, poniendo en copia al Departamento de Orientación. Se comenta en dicho correo todas las autoinstrucciones de las que dispone Mikel. Se incita a los profes a que le animen a sacarlas porque le da vergu y no lo hace si no se le pide.
+ACUERDOS TOMADOS: La madre enviará un correo al tutor en el que se ven los resultados de las pruebas realizadas a Ali. El tutor lo envía al resto de sus profesores y a orientación, además de pedir que se le siente en las primeras filas y lejos de Marta, Tony y Kerun. El tutor se compromete a volver a ponerse en contacto con los padres si la pasividad persiste.
 
-- paola con amiga maria del C nueva antigua amiga de balet
-- julia alvarez y valentina
-- introvert pero alegre si pilla confis
+- sergio se altera demasiado si le dicen qué tiene que hacer. tiene muchos enfrentamientos con Daniela. "Cállate".
+- Daniela, Kristen y Elena le siguen el rollo a Durán. Daniela se pelea con Sergio y Durán.
+- Claudia 2ESO problemas con Daniela. Le pone la zancadilla.
