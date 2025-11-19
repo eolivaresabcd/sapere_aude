@@ -168,9 +168,11 @@
     - le costaba reconocer los errores que cometía
 - martínez	agudelo	juanita
     - se adelantó un curso y no ha aprendido bien a dividir en largo
+    - mamá con cáncer
 - pascual	rodríguez	olivia
 - sanz	jara	luna
 - sesin		alí 
+    - IES SAPERE AUDE le incluye como alumno NEAE
     - madre Magalí: 643508165 magaliali13@gmail.com
     - padre: 607388991
     - delante si puede ser. ni tony ni marta ni kerun. 

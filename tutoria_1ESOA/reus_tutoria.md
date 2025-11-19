@@ -158,3 +158,10 @@ TEMAS TRATADOS: En general está contento. Tiene buena relación con los compañ
 PROBLEMAS DETECTADOS: Tiene mucha tarea sin entregar o entregada fuera de tiempo.
 
 ACUERDOS TOMADOS: La madre se compromete a chequear a diario Google Classroom con su hijo para comprobar si hay tarea pendiente y así no fallar en las entregas. El tutor se compromete a estar encima de Marcello en lo relativo al trabajo diario y a avisar a la familia si el problema persiste.
+
+# 25/11/14
+- kai:
+- yowel adam alvaro contra rodrigo en la clase de tutoría de adri 1ºD. yowel es el líder y adam y álvaro le siguen.
+- alí alumno NEAE
+- jori está faltando un montón (de la tutoría de Diego)
+- mariana medina
