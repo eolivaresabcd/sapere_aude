@@ -80,3 +80,6 @@
 - CCP: hablaron de cambios de fechas, resumen de la visita a Portugal, Eduardo Martínez Abarca ganó el 3er premio del Certamen de Jóvenes Investigadores. Está investigando ya con la NASA. Sacó un 10 en todo el tío.
 - Proyecto de Centro: pequeña gymkhana el 15 de diciembre. vienen los alumnos al pasillo de mates, por cursos, por orden. vamos a hacer una prueba única para todos, o sea asequible a cualquier nivel. tiene que ver con los ODS. podría ser tb un escaperoom.
 - me quedo a la clase de miguelangel y los voy llevando a todos a la vez.
+
+# 25/11/20
+- yo le paso a alba el examen de 2bach
