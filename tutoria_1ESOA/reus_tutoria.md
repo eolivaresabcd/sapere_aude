@@ -165,3 +165,13 @@ ACUERDOS TOMADOS: La madre se compromete a chequear a diario Google Classroom co
 - alí alumno NEAE
 - jori está faltando un montón (de la tutoría de Diego)
 - mariana medina
+
+# 25/11/21
+El Día Internacional de la Eliminación de la Violencia contra la Mujer se celebra anualmente el 25 de noviembre para denunciar la violencia que se ejerce sobre las mujeres en todo el mundo y reclamar políticas en todos los países para su erradicación.
+
+Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral contra la Violencia de GéneroBOE, en su artículo 1.1, define la violencia de género como aquella que, “como manifestación de la discriminación, la situación de desigualdad y las relaciones de poder de los hombres sobre las mujeres, se ejerce sobre éstas por parte de quienes sean o hayan sido sus cónyuges o de quienes estén o hayan estado ligados a ellas por relaciones similares de afectividad, aun sin convivencia”, y “comprende todo acto de violencia física y psicológica, incluidas las agresiones a la libertad sexual, las amenazas, las coacciones o la privación arbitraria de libertad.”
+
+- hablamos de cancer de la madre de juanita
+- hablamos de casos de acoso y bullying
+- leer material accion tutorial, primer trimestre, proceso de enseñanza - primera evaluacion, la reu se hará como la ev 0. utilizo el acta para apoyarme y rellenar sobre la marcha. hay que hacerlos reflexionar sobre su trimestre y comentar observaciones en la reu de profes. es mejor hablarlo en genérico y no de materias concretas.
+- hacer copia de la preevaluación encuesta y hacerla yo en clase

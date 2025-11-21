@@ -51,3 +51,15 @@
     - empezó el año pasado una relación con un compi y parece que remontó un poco en su vida
     - relación con la madre tóxica, pq la madre es muy manipuladora
     - su estado de ánimo depende mucho de cómo esté con este chaval
+
+
+- medidas para NEAE
+    - sebas
+    - kary
+    - luna
+    - gon
+    - tippex y boli de tinta azul o negra
+    - +30 min
+    - examenes con formato adaptado en DINA3
+    - lectura de estudiantes
+    - papel adicional
