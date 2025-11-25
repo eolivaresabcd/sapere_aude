@@ -178,7 +178,13 @@
     - delante si puede ser. ni tony ni marta ni kerun. 
 - silva	martínez	valentina
 - vaquero	arteaga	sergio (mote: gio) 654868855 616339134
+    - monica
+    - jose luis
     - cumple: 2025/09/10
+    - les cuesta que sea autónomo para algunas cosas
+    - le tienen que ir pidiendo que estudie
+    - las cosas con complicación le cuestan más: proyectos, estudiar
+    - tiene que trabajar la paciencia y el cuando interrumpir o no en clase.
 
 
 Comunicación telefónica: madre, tutor.
