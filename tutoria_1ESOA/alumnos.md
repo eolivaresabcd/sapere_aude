@@ -197,6 +197,3 @@ PROBLEMAS DETECTADOS: Ali no atiende ni trabaja en clase.
 
 ACUERDOS TOMADOS: La madre enviará un correo al tutor en el que se ven los resultados de las pruebas realizadas a Ali. El tutor lo envía al resto de sus profesores y a orientación, además de pedir que se le siente en las primeras filas y lejos de Marta, Tony y Kerun. El tutor se compromete a volver a ponerse en contacto con los padres si la pasividad persiste.
 
-- sergio se altera demasiado si le dicen qué tiene que hacer. tiene muchos enfrentamientos con Daniela. "Cállate".
-- Daniela, Kristen y Elena le siguen el rollo a Durán. Daniela se pelea con Sergio y Durán.
-- Claudia 2ESO problemas con Daniela. Le pone la zancadilla.

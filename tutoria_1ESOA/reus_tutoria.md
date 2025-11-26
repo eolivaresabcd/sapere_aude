@@ -175,3 +175,23 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - hablamos de casos de acoso y bullying
 - leer material accion tutorial, primer trimestre, proceso de enseñanza - primera evaluacion, la reu se hará como la ev 0. utilizo el acta para apoyarme y rellenar sobre la marcha. hay que hacerlos reflexionar sobre su trimestre y comentar observaciones en la reu de profes. es mejor hablarlo en genérico y no de materias concretas.
 - hacer copia de la preevaluación encuesta y hacerla yo en clase
+
+
+Comunicación telefónica: padre, madre, tutor.
+
+MOTIVO: Sergio puede ser disruptivo en ocasiones.
+
+TEMAS TRATADOS: Alumno aplicado en clase. En general, buenos resultados. Puede ser disruptivo.
+
+PROBLEMAS DETECTADOS: Sergio puede ser disruptivo en ocasiones. Se altera si le dicen qué tiene que hacer. Tiene enfrentamientos puntuales con algunos compañeros. Le cuesta ser autónomo en casa para estudiar y llevar las cosas al día. Le tienen que ir pidiendo que estudie. 
+
+ACUERDOS TOMADOS: En casa van a trabajar la paciencia y resiliencia de Sergio, además de educarle en cuándo intervenir con sus comentarios. El tutor habla con él para exponerle lo hablado con sus padres por teléfono. Le felicita por sus buenas cualidades: aplicado, participativo, curioso. Le anima a trabajar sus defectos en lo académico: saber cuándo intervenir.
+
+- sergio se altera demasiado si le dicen qué tiene que hacer. tiene muchos enfrentamientos con Daniela. "Cállate".
+- Daniela, Kristen y Elena le siguen el rollo a Durán. Daniela se pelea con Sergio y Durán.
+- Claudia 2ESO problemas con Daniela. Le pone la zancadilla.
+
+    - les cuesta que sea autónomo para algunas cosas
+    - le tienen que ir pidiendo que estudie
+    - las cosas con complicación le cuestan más: proyectos, estudiar
+    - tiene que trabajar la paciencia y el cuando interrumpir o no en clase.
