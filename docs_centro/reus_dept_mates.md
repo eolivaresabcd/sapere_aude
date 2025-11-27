@@ -83,3 +83,10 @@
 
 # 25/11/20
 - yo le paso a alba el examen de 2bach
+
+# 25/11/27
+- mandaran formulario para quien quiera participar en el programa erasmus. es opcional.
+- daria leonte 2b eso acompañada al baño siempre. protocolo por ideación de suicidio. acompañada por maría nucio o sara hernàndez.
+- elena díaz 2d. tiene que ir a por un papelito a jefatura
+- raul mata 3d avisar si no está y acompañado a atrévete.
+- maría hernández hay que decirla que vaya a clase. si no va, no nos enfrentamos a ella. la mandamos a jefatura y fuera.
