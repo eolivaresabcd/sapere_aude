@@ -176,6 +176,9 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - leer material accion tutorial, primer trimestre, proceso de enseñanza - primera evaluacion, la reu se hará como la ev 0. utilizo el acta para apoyarme y rellenar sobre la marcha. hay que hacerlos reflexionar sobre su trimestre y comentar observaciones en la reu de profes. es mejor hablarlo en genérico y no de materias concretas.
 - hacer copia de la preevaluación encuesta y hacerla yo en clase
 
+# 25/11/21
+- alvaro torres está con autolesiones
+- de 1esob, mancía y maría son un poco raras socialmente. le cuestan las relaciones interpersonales.
 
 Comunicación telefónica: padre, madre, tutor.
 
