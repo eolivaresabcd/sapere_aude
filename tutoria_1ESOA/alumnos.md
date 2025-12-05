@@ -4,13 +4,14 @@
     - madre colaboradora
     - las de orientación la van a llamar para ver qué onda con las autolesiones
     - estuvieron a punto de meterla en altas capacidades pero cita "me hice un poco la tonta para dar lo mismo que mis compis porque mis padres me exigían mucho".
-- alvarez	castillo	paola 636137051 (elia) 680297215
+- alvarez	castillo	paola 636137051 (elia) 680297215 (papi)
     - buen rendimiento
     - buen comportamiento
     - le gusta la soledad
 - alvarez	lozano	julia
     - bien
-- ardón	pineda	daniela judith (COMPE)
+- ardón	pineda	daniela judith (COMPE): mamá claudia (correo S P)
+    - lleva aprox 2 años en españa desde honduras. predisposición para mejorar. cambio de actitud favorable.m 
     - tiene un año más.
     - pasa por agotar repeticiones
     - Llegó en 5º primaria de Honduras. 
@@ -69,12 +70,13 @@
 - cruz	rabazo	sofía
     - muy bien
     - reservada y selectiva
-- durán 	torrecilla	javier
+- durán 	torrecilla	javier: padre gustavo durán ramos 653 908 713
+
     - 
 - durán 	torrecilla	oliver
 - durán 	valderrama	daniel estevan 656284317 656284317
 - ennassri		salma
-- escribano	sarmiento	antonio (otras DEA) dicasa0408@yahoo.es 654950748 636403768
+- escribano	sarmiento	antonio (otras DEA): diana carolina (dicasa0408@yahoo.es) 654950748 636403768
     - Mala caligrafía, despistado, desastre con el material. 
     - divertido. 
     - solo por las tardes en casa y trabaja poco.
@@ -186,14 +188,158 @@
     - las cosas con complicación le cuestan más: proyectos, estudiar
     - tiene que trabajar la paciencia y el cuando interrumpir o no en clase.
 
+# EVAL 1
+- mis en place:
+    - web del profe 
+    - excel notas
+    - vsc
+- comments generales:
+    - en general buen comportamiento
+    - algo habladores, pero responden bien a los toques de atención
+    - aplicados en clase aunque no muy buenos académicamente
+    - quizá no tengan un buen hábito de estudio y por eso sus notas no son tan altas
+    - fallan al entregar tareas o las entregan tarde en algunas asignaturas
+- por alumnos:
+    - daniela: (hubo reu)
+        - le gusta ser el centro de atención
+        - no trabaja ni copia
+        - actitud parece que cambia en algunas asignaturas
+        - luego empieza a copiar aunque sigue sin entender
+        - exámenes en blanco
+        - perfil de compensatoria
+        - viene de honduras. va a hacer 2 años aquí
+        - muy pendiente de otros compañeros
+        - ya estaba en compensatoria en primaria
+    - elena: FALTA REU
+        - ni estudia ni trabaja. examenes blancos.
+        - siempre pendiente de lo que pasa a su alrededor
+        - falta de base
+        - muy bajo nivel académico en general
+    - kristen: (hubo reu)
+        - se descubre en archivos pasados que tiene trastorno del desarrollo del lenguaje (DEA)
+        - le cuesta la lectoescritura
+        - pendiente hacer anexo 6
+        - en principio le ponemos las medidas por defecto
+        - dispersa
+        - muestra desinterés
+        - no está pendiente de socializar. solo se distrae.
+        - en enero empezamos el plan refuerza. quizá sea una buena candidata.
 
-Comunicación telefónica: madre, tutor.
+    - a estas 3 alumnas les quedan las asignaturas difíciles. parece que van con adriana. la única aplicada del grupo. ella viene de honduras también, como daniela, pero está currando un montonazo. Apunta todo, pregunta cuando no entiende, etc. (eso en mates, pq no tengo comments de otras asignaturas)
 
-MOTIVO: Ali no atiende ni trabaja en clase.
+    - durán: REPETIDOR. FALTA REU.
+        - repetidor
+        - llega tarde frecuentemente
+        - se distrae mucho
+        - se evade de las tareas
+        - se relaciona con malas influencias de otros cursos
+        - mejor llamar a su padre a una hora cercana a la comida o por la tarde.
 
-TEMAS TRATADOS: Varios profes se quejan de su pasividad. En casa le han puesto un Tutor que le ayuda a llevar las tareas al día. Le han hecho pruebas de TDAH y Autismo pero son inconcluyentes. La madre sugiere que tomemos medidas que puedan ayudarle a mantener la atención.
+    - ESTE HA SIDO EL REPETIDOR
 
-PROBLEMAS DETECTADOS: Ali no atiende ni trabaja en clase.
+    - kerun: TEL (hubo reu)
+        - su principal dificultad es el idioma
+        - en general atiende y trabaja y hace deberes
+        - un poco vago en algunas asignaturas. Trabajando algo más debería poder aprobar todo.
+        - lo mecánico lo resuelve, pero si tiene que aplicar comprensión lectora le cuesta mucho
 
-ACUERDOS TOMADOS: La madre enviará un correo al tutor en el que se ven los resultados de las pruebas realizadas a Ali. El tutor lo envía al resto de sus profesores y a orientación, además de pedir que se le siente en las primeras filas y lejos de Marta, Tony y Kerun. El tutor se compromete a volver a ponerse en contacto con los padres si la pasividad persiste.
+    - marta: TEL (hubo reu)
+        - se duerme a menudo en clase
+        - dispersa. hay que estar encima.
 
+    - mikel: TDAH (hubo reu)
+        - se distrae mucho
+        - a la mínima se pone a pintar o a hablar con el de al lado
+        - mala ortografía tanto en castellano como en inglés
+        - tiene autoinstrucciones. pedirle que las saque siempre en los exámenes
+        - demanda ayuda constantemente durante los exámenes
+        - bajo nivel de inglés
+    - antonio escribano: TDA (tema inglés) (hubo reu) dislexia a tope
+        - debe estudiar más en bio y geo
+        - suspenso en inglés por faltar al examen al irse de viaje
+        - esto lo recuperará en la segunda ev
+
+    - ESTOS HAN SIDO LOS DE NECESIDADES
+    
+    - antonio alessandro: (hubo reu)
+        - muy flojito en algunas asignaturas
+        - a la mínima que se rodea de distractores se pierde
+        - le pesa mucho suspender
+        - le falta estudio
+    - alí: (hubo reu) perfil trastorno del aprendizaje anexo 6
+        - descubierto trastorno del aprendizaje tras llamada con la madre
+        - no hace absolutamente nada ni en mates ni en inglés y sin embargo aprueba
+        - deja muchas preguntas en blanco, pero las que hace las hace bien
+        - tiene un perfil casi TEA, hay que tomar medidas con él como atenderle con frecuencia en clase, ponerle en primera fila, etc.
+        - hay que estar encima de él para que saque los apuntes y copie
+        - le da mucha vergüenza intervenir en clase y habla muy bajito
+    - marcello: (hubo reu)
+        - mucho cinco y suspensos muy bajos
+        - le gusta mucho llamar la atención, pero responde bien a los toques de atención del profe
+        - típicamete dice un comentario gracioso en cada clase y cuando se le regaña, para
+        - no trabaja nada y es más que capaz de obtener mejores resultados
+        - no estudie mucho
+        - no entrega muchos deberes
+
+    - ESTOS HAN SIDO LOS QUE PUEDEN DAR MÁS DE SÍ
+
+    - paola: 
+        - ciertos destellos de genialidad en lengua y mates, sus asignaturas favoritas
+        - a veces se despista
+    - salma:
+        - muy justita en mates
+        - parece que está rindiendo lo que puede
+        - en general buen comportamiento y actitud
+        - en ocasiones olvida los deberes
+    - julia: 
+        - flojilla académicamente
+        - se tiene que implicar más
+
+    - ESTAS HAN SIDO LAS QUE VAN MÁS JUSTILLAS AUNQUE TRABAJAN
+
+    - sergio: (hubo reu)
+        - requiere atención constantemente
+        - disruptivo con sus comentarios
+        - se habló con él y con sus papis y ahora se involucra mucho mejor
+        - solo interviene levantando la mano (a veces se le olvida)
+        - ahora se queda al final de clase para hablar sobre sus inquietudes
+    - fátima:
+        - se ha confiado demasiado y aunque aprueba puede hacerlo mucho mejor
+        - ella es consciente de ello. lo reflexionó durante una tutoría.
+    - laia: notazas. muy aplicada.
+    - sofía: notazas. muy aplicada.
+    - javier: notazas. muy aplicada.
+    - oliver: notazas. muy aplicada.
+    - adriana: notazas. muy aplicada.
+    - juanita: notazas. muy aplicada.
+    - olivia: notazas. muy aplicada.
+    - luna: notazas. muy aplicada.
+    - valentina: notazas. muy aplicada.
+
+    - ESTOS HAN SIDO LOS QUE VAN BIEN ACADÉMICAMENTE
+
+- comments de los alumnos:
+    - quizá se puedan centrar un poco más para preparar mejor los exámenes
+    - proponen que algunos profes bajen un poco el nivel para que se adapten a su ritmo
+    - proponen que algunos profes no sean tan estrictos a la hora de corregir comportamientos (bostezo, estirarse, etc.)
+
+
+    - paola
+    - trabajo de bio geo con unas chicas en la biblio del pueblo y estuvo contenta
+    - hace teatro y se transforma. le encanta actuar.
+    - preguntar en orientación si hay algún grupo de teatro
+    - le gusta el manga y anime
+    - leer. brillantez de eso?
+    - a veces le da la vena de escribir
+    - mundo interior muy grande
+    - en casa lo tratan con normalidad
+
+Comunicación telefónica: padre, tutor
+
+MOTIVO: Paola se siente desplazada porque unas compañeras de clase la rechazan al ver que ella se empieza a juntar con otra chica de otra clase que ellas no toleran.
+
+TEMAS TRATADOS: Paola es una chica a la que le gusta la soledad. Fan del manga y anime. Dibuja y escribe un montón. En casa, en ocasiones hace preguntas de adulta. Está en un grupo de teatro que le encanta. Parece que al subirse al escenario se transforma. En cuanto a las relaciones con los compañeros de clase, recientemente ha hecho un trabajo de B/G en la biblioteca con 4 compañeras más y ha vuelto muy contenta a casa de la experiencia. Se ha sentido cómoda socializando con esas personas.
+
+PROBLEMAS DETECTADOS: Paola se siente como un bicho raro en clase. Cree que nadie de la clase la va a aceptar tal y como es. Teme que esto se sepa por los compañeros. Le da miedo acercarse a los demás para abrir conversación.
+
+ACUERDOS TOMADOS: Padre y profesor acuerdan hablar con Orientación, para que ayuden a Paola a integrarse algo mejor en la clase. El padre dice de preguntar por la existencia de algún grupo de teatro o algo similar en el instituto, donde Paola encuentre gente más afín a ella, por sus gustos. 

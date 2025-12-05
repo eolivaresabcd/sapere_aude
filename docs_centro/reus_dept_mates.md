@@ -90,3 +90,6 @@
 - elena díaz 2d. tiene que ir a por un papelito a jefatura
 - raul mata 3d avisar si no está y acompañado a atrévete.
 - maría hernández hay que decirla que vaya a clase. si no va, no nos enfrentamos a ella. la mandamos a jefatura y fuera.
+
+# 25/12/04
+- planificamos lo de divermates
