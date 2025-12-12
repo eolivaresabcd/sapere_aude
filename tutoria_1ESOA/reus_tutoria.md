@@ -180,6 +180,32 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - alvaro torres está con autolesiones
 - de 1esob, mancía y maría son un poco raras socialmente. le cuestan las relaciones interpersonales.
 
+# 25/12/12
+- 15 plazas para primero eso en programa refuerza. propongo a kristen, daniela y elena
+- dos días a la semana
+- dos horas por la tarde cada día
+- nos manda maría cartita
+- quizá comience el jueves 15 de enero de 4 a 6pm
+- martes y jueves
+- tienen que firmar una carta. se comprometen a asistir.
+- hay que tener predisposición para trabajo y estudio, preguntar de manera proactiva, etc.
+- se firma la hoja para autorizar
+- hay que tenerlo firmado antes de irnos de vacaciones
+- si quieren comer aquí pueden traer comida de casa que pueden calentar en el micro
+- comportamiento de los niños tiene que ser bueno en la cafe
+- vale 6 con algo el menú. tb se puede pedir medio.
+- las faltas al plan refuerza hay que justificarlas y avisarlas al tutor
+
+
+
+
+
+
+
+
+
+
+
 Comunicación telefónica: padre, madre, tutor.
 
 MOTIVO: Sergio puede ser disruptivo en ocasiones.

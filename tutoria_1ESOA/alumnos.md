@@ -4,6 +4,7 @@
     - madre colaboradora
     - las de orientación la van a llamar para ver qué onda con las autolesiones
     - estuvieron a punto de meterla en altas capacidades pero cita "me hice un poco la tonta para dar lo mismo que mis compis porque mis padres me exigían mucho".
+    - se consideró altas capacidades en primaria
 - alvarez	castillo	paola 636137051 (elia) 680297215 (papi)
     - buen rendimiento
     - buen comportamiento
@@ -74,7 +75,7 @@
 
     - 
 - durán 	torrecilla	oliver
-- durán 	valderrama	daniel estevan 656284317 656284317
+- durán 	valderrama	daniel estevan 656284317 padre
 - ennassri		salma
 - escribano	sarmiento	antonio (otras DEA): diana carolina (dicasa0408@yahoo.es) 654950748 636403768
     - Mala caligrafía, despistado, desastre con el material. 
@@ -215,7 +216,7 @@
         - siempre pendiente de lo que pasa a su alrededor
         - falta de base
         - muy bajo nivel académico en general
-    - kristen: (hubo reu)
+    - kristen: (hubo reu) 643104534 madre yohany
         - se descubre en archivos pasados que tiene trastorno del desarrollo del lenguaje (DEA)
         - le cuesta la lectoescritura
         - pendiente hacer anexo 6
@@ -336,10 +337,10 @@
 
 Comunicación telefónica: padre, tutor
 
-MOTIVO: Paola se siente desplazada porque unas compañeras de clase la rechazan al ver que ella se empieza a juntar con otra chica de otra clase que ellas no toleran.
+MOTIVO: Daniel ha suspendido 6 asignaturas.
 
-TEMAS TRATADOS: Paola es una chica a la que le gusta la soledad. Fan del manga y anime. Dibuja y escribe un montón. En casa, en ocasiones hace preguntas de adulta. Está en un grupo de teatro que le encanta. Parece que al subirse al escenario se transforma. En cuanto a las relaciones con los compañeros de clase, recientemente ha hecho un trabajo de B/G en la biblioteca con 4 compañeras más y ha vuelto muy contenta a casa de la experiencia. Se ha sentido cómoda socializando con esas personas.
+TEMAS TRATADOS: Según el padre, Daniel no busca la excelencia, le basta con la mediocridad. El padre lucha para que su hijo tenga las mejores condiciones de vida en Madrid: piso solo y no compartido, cuarto propio con escritorio, tablet personal... Daniel no lo llega a valorar del todo y no se esfuerza porque sabe que va a pasar de curso igualmente. Se distrae con frecuencia en clase y se ve que trabaja poco, porque no tiene grandes dificultades para responder cuando se le pregunta algo, pero sí para entregar la tarea mandada. Es cierto que su actitud ha mejorado últimamente, aunque sigue llegando tarde a clase en numerosas ocasiones.
 
-PROBLEMAS DETECTADOS: Paola se siente como un bicho raro en clase. Cree que nadie de la clase la va a aceptar tal y como es. Teme que esto se sepa por los compañeros. Le da miedo acercarse a los demás para abrir conversación.
+PROBLEMAS DETECTADOS: Falta de esfuerzo.
 
-ACUERDOS TOMADOS: Padre y profesor acuerdan hablar con Orientación, para que ayuden a Paola a integrarse algo mejor en la clase. El padre dice de preguntar por la existencia de algún grupo de teatro o algo similar en el instituto, donde Paola encuentre gente más afín a ella, por sus gustos. 
+ACUERDOS TOMADOS: Madre y profesor acuerdan recordar a Daniel que valore el esfuerzo de su padre. Que se esfuerce al máximo para aprobar, que es más que capaz. El profesor le invita a que busque nuevas amistades dentro de su clase, ya que muchos suponen una muy buena influencia al ser trabajadores y responsables. Además se recuerda al padre la importancia de tener controlado el uso que se le da a la tablet, ya que puede ser un gran distractor.
