@@ -206,15 +206,15 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 
 
 
-Comunicación telefónica: padre, madre, tutor.
+Comunicación personal: padre, madre, tutor.
 
-MOTIVO: Sergio puede ser disruptivo en ocasiones.
+MOTIVO: Se aplican las medidas DEA del anexo VI para Alí.
 
-TEMAS TRATADOS: Alumno aplicado en clase. En general, buenos resultados. Puede ser disruptivo.
+TEMAS TRATADOS: El alumno se distrae con frecuencia y es necesario que mantenga la atención durante más tiempo para mejorar sus resultados.
 
-PROBLEMAS DETECTADOS: Sergio puede ser disruptivo en ocasiones. Se altera si le dicen qué tiene que hacer. Tiene enfrentamientos puntuales con algunos compañeros. Le cuesta ser autónomo en casa para estudiar y llevar las cosas al día. Le tienen que ir pidiendo que estudie. 
+PROBLEMAS DETECTADOS El alumno se distrae con frecuencia y es necesario que mantenga la atención durante más tiempo para mejorar sus resultados. 
 
-ACUERDOS TOMADOS: En casa van a trabajar la paciencia y resiliencia de Sergio, además de educarle en cuándo intervenir con sus comentarios. El tutor habla con él para exponerle lo hablado con sus padres por teléfono. Le felicita por sus buenas cualidades: aplicado, participativo, curioso. Le anima a trabajar sus defectos en lo académico: saber cuándo intervenir.
+ACUERDOS TOMADOS: Los padres firman el anexo. Se comprometen a tener cierto control sobre el tiempo y el uso que Alí le da a la tablet en casa. El profesor invita a los padres a escribirle un correo para cualquier cosa que necesiten. El profesor intenta atender de manera individualizada a Alí todo lo que le permita una clase de 25 pupilos.
 
 - sergio se altera demasiado si le dicen qué tiene que hacer. tiene muchos enfrentamientos con Daniela. "Cállate".
 - Daniela, Kristen y Elena le siguen el rollo a Durán. Daniela se pelea con Sergio y Durán.
