@@ -93,3 +93,8 @@
 
 # 25/12/04
 - planificamos lo de divermates
+
+# 26/01/08
+- firmamos adaptaciones
+- la semana de pendientes del 19 al 23 de enero no ponemos nada de examenes
+- 70% hacemos propuesta de mejora para los resultados de la 1ª ev

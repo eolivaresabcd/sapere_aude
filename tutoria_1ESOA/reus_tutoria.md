@@ -196,7 +196,14 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - vale 6 con algo el menú. tb se puede pedir medio.
 - las faltas al plan refuerza hay que justificarlas y avisarlas al tutor
 
-
+# 26/01/09
+- sociescuela es una herramienta que sirve para hacer una especie de sociograma
+- los chavales responden una serie de preguntas y los profes ven los mapas de relaciones, aceptaciones y rechazos, posibles situaciones de acoso, etc.
+- también hay tests sobre autoestima y conforme a eso se puede hacer que pasen otro cuestionario individual sobre salud emocional y demás.
+- codigo del centro 28050562
+- meterse en sociescuela en google y clickar en novedades para encontrar la guia de como se usa
+- tb se puede clickar en la guia de uso pa ver de qué va
+- la semana que viene empezamos con el ARA. eso es el plan refuerza. empezarían el jueves 15.
 
 
 

@@ -603,3 +603,10 @@ PREPARAR TODO ESTO EL DOMINGO
 
 # 2025/10/28: OBJETIVOS PGA y Plan de Mejora Contínua
 - expulsar a un alumno de clase tiene que ir acompañado de un parte
+
+# 2025/12/17
+- aprobación acta anterior por unanimidad
+- se aprueban asignaturas nuevas por unanimidad
+- resultados académicos
+- resultados de convivencia
+- resultados de absentismo
