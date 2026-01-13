@@ -8,3 +8,4 @@ aplicaciones.sapere@gmail.com para que los chicos descarguen apps en sus tablets
 cursos anpe: e.olivares.abcd user; pass: la de siempre
 banco mio: la de siempre sin caracteres raros manteniendo mayus y minus como siempre
 banco con can: you know which 8
+sociescuela: la de siempre
