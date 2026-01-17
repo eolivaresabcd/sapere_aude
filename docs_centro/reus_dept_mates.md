@@ -98,3 +98,11 @@
 - firmamos adaptaciones
 - la semana de pendientes del 19 al 23 de enero no ponemos nada de examenes
 - 70% hacemos propuesta de mejora para los resultados de la 1ª ev
+
+# 26/01/15
+- en las actas vamos a poner que se redondean las notas hacia arriba a partir del 4,7 durante el curso pero al final del curso redondeamos del 4,5 parriba. 
+- miercoles 28 de enero es la primera fase del concurso de primavera. nos mandarán 20 probs en vez de 25. se hará entre cuarta y quinta hora. hay 3 niveles: 1 y 2 eso, 3 y 4 eso, 1 y 2 bach
+- comida del dept
+- documento para la mejora de resultados: se va a poner laynez a hacerlo y nos dice si se tarda poco o no. él nos da la salida para rellenarlo nosotros.
+- el próximo día estaremos rellenando las propuestas de mejora
+- el día 19 en el recreo dan info del programa erasmus+

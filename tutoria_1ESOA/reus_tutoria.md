@@ -204,6 +204,11 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - meterse en sociescuela en google y clickar en novedades para encontrar la guia de como se usa
 - tb se puede clickar en la guia de uso pa ver de qué va
 - la semana que viene empezamos con el ARA. eso es el plan refuerza. empezarían el jueves 15.
+- Kristen se rien de su nariz. A la vuelta de Navidad parece que han parado. Los chicos eran Durán, Adrián Torres, y alguno más cuyo nombre no recuerda Kristen.
+
+# 26/01/16
+- isabel lopez: qué es eso de revisar las faltas de asistencia?
+
 
 
 
