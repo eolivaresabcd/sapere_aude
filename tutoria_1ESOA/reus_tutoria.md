@@ -207,11 +207,23 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - Kristen se rien de su nariz. A la vuelta de Navidad parece que han parado. Los chicos eran Durán, Adrián Torres, y alguno más cuyo nombre no recuerda Kristen.
 
 # 26/01/16
-- isabel lopez: qué es eso de revisar las faltas de asistencia?
+- no vinieron
 
+# 26/01/23
+- plan ARA: daniela, kristen y elena de momento con valoración satisfactoria por parte de los profes
+    - nota ámbito sociolingüístico: las tres niñas un 5 en comportamiento y aprovechamiento
+    - nota ámbito matemático: las tres niñas entorno al 5 en comportamiento y aprovechamiento
+- faltas:
+    - marcello 21 y 
+    - ali 18 faltan mucho. 
+    - que porfavor justifique si están malos para poder ponerlo y no preocuparnos.
 
+# 26/01/30
+- deberes para este día: 
+    - revisamos resultados sociescuela. tenerlo ya mirado para agilizar.
 
-
+- marcelo no quiere ser subdelegado y además no asiste. Elena quiere serlo.
+- fatima me ha dicho que durán se corta
 
 
 
