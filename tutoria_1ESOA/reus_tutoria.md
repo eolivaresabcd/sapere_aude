@@ -248,3 +248,12 @@ ACUERDOS TOMADOS: Los padres firman el anexo. Se comprometen a tener cierto cont
     - le tienen que ir pidiendo que estudie
     - las cosas con complicación le cuestan más: proyectos, estudiar
     - tiene que trabajar la paciencia y el cuando interrumpir o no en clase.
+
+
+marcello
+- sufre de la tripay por eso falta
+- le borran los juegos
+- las hace pero no las sube
+- tras revisar deberes mando correo de si no me los envía
+- marcello ta bien socialmente
+- 
