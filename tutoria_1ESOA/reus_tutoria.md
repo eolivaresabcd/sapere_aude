@@ -225,35 +225,33 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - marcelo no quiere ser subdelegado y además no asiste. Elena quiere serlo.
 - fatima me ha dicho que durán se corta
 
+# 26/02/06
+- alvaro díaz 1ºD
+- se puso super nervioso cuando le dijimos que iba a venir el padre a hablar con los profes
+- alvaro thiago se influencian malamente el uno al otro
+- thiago es el origen de los vapers
+- thiago es más listo. sabe armarla y guardar la ropa. alvaro tiene falta de amor propio.
+- alvaro se autocastiga cuando hace algo mal. 
+- daniela es amiga de juanita y había quedado con álvaro a la salida para zumbarse
+- van daniela y álvaro al plan refuerza
+- religión es la clase problemática
+- álvaro no va a venir más al plan refuerza
 
+- daniel riesgo de fracaso y abandono
+- paola hablé con las del club de compis a ver si la acogían
+- marta tiene que rellenar encuesta investigo a ver
+- salma pendiente hablar
+- sofía pendiente hablar
+- mando al equipo docente la propuesta de equipos de trabajo en clase y hablo con la peñita
+- VER CÓMO SACAR A PEÑITA INFLUYENTE DE CLASE PARA AYUDAR A LOS QUE SE PUEDAN SENTIR SOLOS
+- LUNES A SÉPTIMA HAY UN GRUPO DE HABILIDADES SOCIALES. Ver quién se puede beneficiar de ello. Pregunto a Sonia a ver a quién le llevo.
 
+Comunicación telefónica: madre, tutor.
 
+MOTIVO: Acumulación de faltas injustificadas. Debe mejorar comportamiento y aplicarse en clase.
 
+TEMAS TRATADOS: La madre justifica que Marcello sufre mucho de la tripa y por eso se queda varias mañanas en casa.
 
-Comunicación personal: padre, madre, tutor.
+PROBLEMAS DETECTADOS: Se pide a la familia que por favor justifique las faltas de Marcello para tener certeza de que en casa saben que está faltando. Para que el alumno se aplique, le han quitado los juegos de la tablet y procuran asegurarse de que realiza todos los deberes. Justifican en casa que en ocasiones sí los realiza pero se le olvida mandarlos. Eso no es suficiente. Los profesores debemos tener pruebas de que en efecto está realizando la tarea, y para eso la tiene que enviar.
 
-MOTIVO: Se aplican las medidas DEA del anexo VI para Alí.
-
-TEMAS TRATADOS: El alumno se distrae con frecuencia y es necesario que mantenga la atención durante más tiempo para mejorar sus resultados.
-
-PROBLEMAS DETECTADOS El alumno se distrae con frecuencia y es necesario que mantenga la atención durante más tiempo para mejorar sus resultados. 
-
-ACUERDOS TOMADOS: Los padres firman el anexo. Se comprometen a tener cierto control sobre el tiempo y el uso que Alí le da a la tablet en casa. El profesor invita a los padres a escribirle un correo para cualquier cosa que necesiten. El profesor intenta atender de manera individualizada a Alí todo lo que le permita una clase de 25 pupilos.
-
-- sergio se altera demasiado si le dicen qué tiene que hacer. tiene muchos enfrentamientos con Daniela. "Cállate".
-- Daniela, Kristen y Elena le siguen el rollo a Durán. Daniela se pelea con Sergio y Durán.
-- Claudia 2ESO problemas con Daniela. Le pone la zancadilla.
-
-    - les cuesta que sea autónomo para algunas cosas
-    - le tienen que ir pidiendo que estudie
-    - las cosas con complicación le cuestan más: proyectos, estudiar
-    - tiene que trabajar la paciencia y el cuando interrumpir o no en clase.
-
-
-marcello
-- sufre de la tripay por eso falta
-- le borran los juegos
-- las hace pero no las sube
-- tras revisar deberes mando correo de si no me los envía
-- marcello ta bien socialmente
-- 
+ACUERDOS TOMADOS: Los padres se comprometen a justificar las faltas de su hijo con un correo al profe. El profesor se compromete a volver a avisar a los padres si Marcello sigue sin subir los deberes.

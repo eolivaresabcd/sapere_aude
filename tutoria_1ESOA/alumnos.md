@@ -335,12 +335,10 @@
     - mundo interior muy grande
     - en casa lo tratan con normalidad
 
-Comunicación telefónica: padre, tutor
+Comunicación presencial: alumna, tutor
 
-MOTIVO: Daniel ha suspendido 6 asignaturas.
+MOTIVO: conflicto con álvaro díaz E1D.
 
-TEMAS TRATADOS: Según el padre, Daniel no busca la excelencia, le basta con la mediocridad. El padre lucha para que su hijo tenga las mejores condiciones de vida en Madrid: piso solo y no compartido, cuarto propio con escritorio, tablet personal... Daniel no lo llega a valorar del todo y no se esfuerza porque sabe que va a pasar de curso igualmente. Se distrae con frecuencia en clase y se ve que trabaja poco, porque no tiene grandes dificultades para responder cuando se le pregunta algo, pero sí para entregar la tarea mandada. Es cierto que su actitud ha mejorado últimamente, aunque sigue llegando tarde a clase en numerosas ocasiones.
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: problema empieza en noviembre. juanita deja de ser amiga de álvaro por que él comienza a relacionarse con malas influencias y a fumar vaper. él la presiona para que siga siendo su amiga y no acepta la negativa por respuesta. el domingo pasado se presenta en su casa junto con 2 amigos de la clase para hablar con ella y juanita se encierra en casa presa del miedo. comenta la situación por WA a sus amigos de 2ºESO, que vienen a echar a los de 1ºESO. El lunes siguiente falta al colegio por miedo y ansiedad. comenta que el chico y sus amigos pasean al lado de ella y la miran, le han pegado un coscorrón en la cabeza, y la hacen sentir mal en clase de religión (la única en la que coinciden). álvaro hace en numerosas ocasiones comentarios racistas y se sospecha que pueda tener graves problemas en casa.
 
-PROBLEMAS DETECTADOS: Falta de esfuerzo.
-
-ACUERDOS TOMADOS: Madre y profesor acuerdan recordar a Daniel que valore el esfuerzo de su padre. Que se esfuerce al máximo para aprobar, que es más que capaz. El profesor le invita a que busque nuevas amistades dentro de su clase, ya que muchos suponen una muy buena influencia al ser trabajadores y responsables. Además se recuerda al padre la importancia de tener controlado el uso que se le da a la tablet, ya que puede ser un gran distractor.
+ACUERDOS TOMADOS: profesor habla con jefatura y orientación. comunica a la alumna que le cuente si sigue pasando situacones desagradables o de miedo con el otro alumno. jefatura hablará por separado con los chicos y resuelve el problema con la ayuda de orientación, que a su vez investigará la situación familiar del chico.

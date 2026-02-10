@@ -106,3 +106,18 @@
 - documento para la mejora de resultados: se va a poner laynez a hacerlo y nos dice si se tarda poco o no. él nos da la salida para rellenarlo nosotros.
 - el próximo día estaremos rellenando las propuestas de mejora
 - el día 19 en el recreo dan info del programa erasmus+
+
+# 26/01/29
+- movemos concurso primavera mates: lunes 2 de feb a 4ª y 5ª
+- informes de mejora: yo no hace falta que lo mande porque me han aprobao más que el 70%. en teoría había que mandarlo a jefatura directamente con miguel laynez en copia. TODOS debemos tener también un plan de mejora individualizado para todos los alumnos. había que mandarlo en teoría antes del viernes.
+- plan individualizado: no tenemos documento en la web del profe ni na para rellenar, así que no lo hacemos a no ser que lo pidan. nos lo inventamos con un poco de ayuda de chatgpt.
+- fechas de examenes (las evaluaciones son 9 10 11 12 marzo): 
+    - 1eso: todos vamos por operaciones con fracciones. global el 24 de febrero a la hora normal de clase. lo hace noe.
+    - 2eso: quedan ellos
+    - 3eso: quedan ellos
+    - 4eso: quedan ellos
+    - 1bach: quedan ellos
+    - 2bach: lo hago yo. 2 de análisis y 2 de álgebra.
+
+# 26/02/05
+- en la ccp han hablado de lo del erasmus, revisando lo del simulacro en las aulas, informes de mejora están mejor de lo que esperaban y que no dejemos los radiadores encendidos.
