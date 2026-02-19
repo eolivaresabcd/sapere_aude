@@ -246,12 +246,15 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - VER CÓMO SACAR A PEÑITA INFLUYENTE DE CLASE PARA AYUDAR A LOS QUE SE PUEDAN SENTIR SOLOS
 - LUNES A SÉPTIMA HAY UN GRUPO DE HABILIDADES SOCIALES. Ver quién se puede beneficiar de ello. Pregunto a Sonia a ver a quién le llevo.
 
-Comunicación telefónica: madre, tutor.
+# siguiente
+- elena brítez quire ser subdelegada
+- alex, has hablado con Daniel Durán?
 
-MOTIVO: Acumulación de faltas injustificadas. Debe mejorar comportamiento y aplicarse en clase.
 
-TEMAS TRATADOS: La madre justifica que Marcello sufre mucho de la tripa y por eso se queda varias mañanas en casa.
+Comunicación presencial: alumno, tutor.
 
-PROBLEMAS DETECTADOS: Se pide a la familia que por favor justifique las faltas de Marcello para tener certeza de que en casa saben que está faltando. Para que el alumno se aplique, le han quitado los juegos de la tablet y procuran asegurarse de que realiza todos los deberes. Justifican en casa que en ocasiones sí los realiza pero se le olvida mandarlos. Eso no es suficiente. Los profesores debemos tener pruebas de que en efecto está realizando la tarea, y para eso la tiene que enviar.
+MOTIVO: Alumna comenta que no ve bien de ánimos a Durán. Él ha faltado 3 veces en la última semana y las faltas no han sido justificadas por su padre.
 
-ACUERDOS TOMADOS: Los padres se comprometen a justificar las faltas de su hijo con un correo al profe. El profesor se compromete a volver a avisar a los padres si Marcello sigue sin subir los deberes.
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: Se le pregunta al alumno por qué ha faltado. Este comenta que ha sido debido a una enfermedad. Se le escucha con voz ronca. El día anterior apareció con los ojos muy rojos. Decía que le picaban y le dolían, pero que acudió al médico y este le recetó un colirio. Se le comenta que le diga a su padre que por favor justifique las faltas para que no haya preocupación en el instituto. Además se le pregunta por su situación actual con los compañeros, en los patios y en las clases. El alumno dice haber encajado bien en el grupo. Dice disfrutar al lado de sus compañeros y no aparenta tener ningún problema tal y como insinuaba la compañera. Se le ve derecho y con un nivel de ánimo estándar.
+
+ACUERDOS TOMADOS: Profesor comunica al padre que justifique las faltas. Pide al alumno que le transmita si en algún momento se empieza a sentir a disgusto con los compañeros o en el día a día en el instituto.

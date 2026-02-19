@@ -122,4 +122,7 @@
 # 26/02/05
 - en la ccp han hablado de lo del erasmus, revisando lo del simulacro en las aulas, informes de mejora están mejor de lo que esperaban y que no dejemos los radiadores encendidos.
 
-# 26/02/19
+# 26/02/12
+- jornada de puertas abiertas: a las 5 pm el 3 de marzo, martes. si miguel nos necesita para algo, ya nos llamará.
+- proyecto de centro: se hace con 3ºESO. la contaminación del cole. para hacer en una clase. no tenemos día. se ha parado un poco pq estamos en semana de exámenes. la semana de evaluaciones empezamos los tutores.
+- comunicar a los del concurso de primavera quién ha ganado
