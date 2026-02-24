@@ -255,14 +255,7 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 
 # siguiente
 - mirar excel de repetidores: los que son susceptibles de repetir y no están, ponerlos. DURÁN HA REPETIDO PRIMERO, ASÍ QUE HAY QUE QUITARLO DE AHÍ. Hay que mandar un correo al resto de profes a ver si opinan lo mismo que nosotros o no.
-- ver resultados Screening Social Sociescuela enviados por Paloma.
+- ver resultados Screening Social Sociescuela enviados por Paloma. Ya los he mirado. Se comentan en la siguiente reu.
 - alex, has hablado con Daniel Durán?
 - cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
 
-Comunicación presencial: alumno, tutor.
-
-MOTIVO: Alumna comenta que no ve bien de ánimos a Durán. Él ha faltado 3 veces en la última semana y las faltas no han sido justificadas por su padre.
-
-TEMAS TRATADOS / PROBLEMAS DETECTADOS: Se le pregunta al alumno por qué ha faltado. Este comenta que ha sido debido a una enfermedad. Se le escucha con voz ronca. El día anterior apareció con los ojos muy rojos. Decía que le picaban y le dolían, pero que acudió al médico y este le recetó un colirio. Se le comenta que le diga a su padre que por favor justifique las faltas para que no haya preocupación en el instituto. Además se le pregunta por su situación actual con los compañeros, en los patios y en las clases. El alumno dice haber encajado bien en el grupo. Dice disfrutar al lado de sus compañeros y no aparenta tener ningún problema tal y como insinuaba la compañera. Se le ve derecho y con un nivel de ánimo estándar.
-
-ACUERDOS TOMADOS: Profesor comunica al padre que justifique las faltas. Pide al alumno que le transmita si en algún momento se empieza a sentir a disgusto con los compañeros o en el día a día en el instituto.
