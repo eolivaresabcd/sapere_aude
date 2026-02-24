@@ -1,5 +1,6 @@
 tutores de 1eso:
 - maría: orientadora
+- elena: 
 - sara: la de música
 - diego
 - adri
@@ -246,10 +247,17 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - VER CÓMO SACAR A PEÑITA INFLUYENTE DE CLASE PARA AYUDAR A LOS QUE SE PUEDAN SENTIR SOLOS
 - LUNES A SÉPTIMA HAY UN GRUPO DE HABILIDADES SOCIALES. Ver quién se puede beneficiar de ello. Pregunto a Sonia a ver a quién le llevo.
 
-# siguiente
-- elena brítez quire ser subdelegada
-- alex, has hablado con Daniel Durán?
+# 26/02/20
+- elena brítez quire ser subdelegada (lo dejo en el limbo)
+- hemos hablado de alumnos varios con problemas de los diferentes grupos
+- le he pedido los resultados del screening social a paloma, para echar un vistazo y comentar en la siguiente reu
+- hemos comentado de ir haciendo tb lo de las técnicas de estudio y demás. a mi clase va a venir maría jesús a hacerlo
 
+# siguiente
+- mirar excel de repetidores: los que son susceptibles de repetir y no están, ponerlos. DURÁN HA REPETIDO PRIMERO, ASÍ QUE HAY QUE QUITARLO DE AHÍ. Hay que mandar un correo al resto de profes a ver si opinan lo mismo que nosotros o no.
+- ver resultados Screening Social Sociescuela enviados por Paloma.
+- alex, has hablado con Daniel Durán?
+- cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
 
 Comunicación presencial: alumno, tutor.
 
