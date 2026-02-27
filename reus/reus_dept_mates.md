@@ -122,4 +122,13 @@
 # 26/02/05
 - en la ccp han hablado de lo del erasmus, revisando lo del simulacro en las aulas, informes de mejora están mejor de lo que esperaban y que no dejemos los radiadores encendidos.
 
-# 26/02/19
+# 26/02/26
+- están pintando las mesas de la D1
+- puertas abiertas el 3 de marzo (el martes que viene)
+- expediente a carlos ciudad ha terminado. parece que le van a cambiar de centro.
+- expediente abierto en 3ºF a Marcos Bravo. se plantea expulsión de centro pq ha amenazado levantando la mano a una profesora.
+- A María Hernández se le abre un expediente casi sin haber llegado al cole. Es de 3ºE.
+- Se abre protocolo de acoso en 2ºA a Sergio López. Ha habido una denuncia de que algo está pasando. Se va a investigar.
+- Protocolo de suicidio, salud mental Cayetana de Diver.
+- 3ºC ha venido una alumna nueva que se llama Melania. La tiene Pilar.
+- Práctica Docente: Hay que hacer un cuestionario nuevo para el departamento.

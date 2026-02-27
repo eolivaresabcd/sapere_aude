@@ -253,9 +253,16 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - le he pedido los resultados del screening social a paloma, para echar un vistazo y comentar en la siguiente reu
 - hemos comentado de ir haciendo tb lo de las técnicas de estudio y demás. a mi clase va a venir maría jesús a hacerlo
 
-# siguiente
-- mirar excel de repetidores: los que son susceptibles de repetir y no están, ponerlos. DURÁN HA REPETIDO PRIMERO, ASÍ QUE HAY QUE QUITARLO DE AHÍ. Hay que mandar un correo al resto de profes a ver si opinan lo mismo que nosotros o no.
+# 26/02/27
+- repaso excel repetidores?
 - ver resultados Screening Social Sociescuela enviados por Paloma. Ya los he mirado. Se comentan en la siguiente reu.
+- las nuevas de maría están haciendo un taller de liderazgo con los grupos de tutoría. están enseñando a los chicos a quejarse con criterio para que sus quejas se escuchen. van a poner un buzón para quejas/ruegos/propuestas de los chavales.
+- los de la comisión de salud están mandando a alex un canva sobre el tema del vaper. estaría bien reunir a todos los chavales para que vean juntos la present del vaper y que haya una sesión de diálogo.
+- preocupación por mikel. están evaluando. el informe que tienen de él es de segundo de primaria.
+- laia pendiente de un informe que mande la madre. si es necesario evalúan posible dislexia.
+
+# siguiente
 - alex, has hablado con Daniel Durán?
 - cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
-
+- hacer tarea de reflexión 2ªev y cuestionario
+- en la evaluación, que expongan los delegados lo del buzón de quejas y propuestas.
