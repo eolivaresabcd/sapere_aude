@@ -156,6 +156,7 @@ que le permitan identificar sus puntos débiles y aprender de los errores.
 - juego: qué pasaría si fuésemos 100? 
     - https://docs.google.com/document/d/1gKhPenECvi6tB0906zQCQEA_Mwur14-0qIySUgqQWFg/edit?tab=t.0
 ## ÁLGEBRA
+- juego: calculo mi nota de la evaluación. qué necesito en el global para aprobar? diseño evaluación hipotética.
 ## RECTAS Y ÁNGULOS
 ## FIGURAS GEOMÉTRICAS
 ## SISTEMA MÉTRICO DECIMAL
