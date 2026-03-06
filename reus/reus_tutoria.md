@@ -261,8 +261,15 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - preocupación por mikel. están evaluando. el informe que tienen de él es de segundo de primaria.
 - laia pendiente de un informe que mande la madre. si es necesario evalúan posible dislexia.
 
+# 26/03/06
+- mis preguntas:
+    - qué tal el tema de mikel? la vais a evaluar?
+    - cómo va la situación de laia?
+- alex me dice que aún tiene pendiente hablar con Daniel Durán. Igual Sonia ya ha hablado con él. En cuanto sepan me comentan.
+- bea, inés y mónica van a empezar con entrevistas a peñita con dislexia para ver qué tal van y tantear. El dept de Orientación va a hacer un seguimiento de ellos. Avisar a los padres por correo.
+
 # siguiente
-- alex, has hablado con Daniel Durán?
 - cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
-- hacer tarea de reflexión 2ªev y cuestionario
 - en la evaluación, que expongan los delegados lo del buzón de quejas y propuestas.
+
+# HWK
