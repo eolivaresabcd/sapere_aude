@@ -11,26 +11,30 @@
         - disciplina: 
         - absentismo: 
         - propuestas de derivación: 
+    - kristen 
     - elena
-    - kristen
 - repetidores: 
-    - durán
+    - durán REPE
+        - por cierto, hay que cambiar en la web del profesor en la sección de la segunda evaluación, donde los comments, que SÍ es repetidor.
 - alumnos con mazo dificultades:
-    - marta
+    - marta TEL
         - Seguimiento de las medidas (ACIs, medidas de evaluación,...)
         - Análisis de la situación académica
         - Propuestas
         - Plan Individualizado de Enriquecimiento
-    - mikel
+    - kerun TEL
+    - mikel TDAH y Dislexia extrema (están en pruebas ahora)
+- vagos: estos suspenden entre 2 y 3 más asignaturas que el trimestre pasado. Caen en las que tenían un 5 en la evaluación anterior.
+    - alí (qué tiene?)
+    - toni
+    - encima estos dos están todo el rato distrayéndose el uno al otro. no paran.
+    - marcello
+        - en mates participa pero no trabaja, no hace deberes
 - alumnos de atención especial:
     - paola
     - salma
-- vagos: 
-    - alí (qué tiene?)
-    - toni
 - con dificultades pero bosses:
-    - toño
-    - kerun
+    - toño DEA
 - resto:
 - se genera el actilla con el excel como en la 1ª EV y se envía copia por pdf a los profes tras la reu
 - se lleva actilla con cambios a secretaría
