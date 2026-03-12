@@ -1,4 +1,6 @@
 # E1A
+- kerun en historia asterisco en la segunda ev
+
 ## PREEVALUACIÓN
 - tras rellenar cuestionarios de situación de mitad de curso, se observan los siguientes resultados:
     - 
@@ -7,34 +9,67 @@
 - tras mirar la información que han rellenado los demás profes en la web del profe, se observan los siguientes resultados:
 - alumnos preocupantes: las del plan refuerza (mirar 2 correos maría 1 por ámbito):
     - daniela:
+        - molesta, disruptiva, arrastra a los demás
+        - responde a todo
         - situación académica:
         - disciplina: 
         - absentismo: 
         - propuestas de derivación: 
-    - kristen 
-    - elena
+    - kristen: 
+        - comiendo en clase
+        - usan el móvil
+    - elena:
+        - son el trío calavera
+        - las tres iguales
+    - estas tres tienen mucho peligro de suspender
 - repetidores: 
     - durán REPE
         - por cierto, hay que cambiar en la web del profesor en la sección de la segunda evaluación, donde los comments, que SÍ es repetidor.
+        - con nati ha empezado a trabajar más
+        - con belén sí molesta y entra a las peleas con daniela. cree que con ella va a suspender.
 - alumnos con mazo dificultades:
     - marta TEL
         - Seguimiento de las medidas (ACIs, medidas de evaluación,...)
         - Análisis de la situación académica
         - Propuestas
         - Plan Individualizado de Enriquecimiento
+        - marta es maravillosa, con sus cosas, pero muy trabajadora y muy educada
     - kerun TEL
+        - nati tiene a kerun con asterisco también
+        - no hace nada en plastica y no tiene motivación para entregar la tarea
     - mikel TDAH y Dislexia extrema (están en pruebas ahora)
+        - despistada en clase un montón
+        - muchas dificultades de lectoescritura
+        - no puede contar con apoyo de PT y AL, pero vemos como la podemos ayudar
+        - cuando hagan la reevaluación en Orientación, nos dicen qué hacemos
+        - es vaga con laura, igual que conmigo. en clase
+        - eva le da los textos antes para que se los prepare
+        - maría dice que no le haga leer, que es una tortura para ella
+        - se le olvida el material para plástica
 - vagos: estos suspenden entre 2 y 3 más asignaturas que el trimestre pasado. Caen en las que tenían un 5 en la evaluación anterior.
-    - alí (qué tiene?)
+    - alí (trastorno del aprendizaje. DEA)
+        - muy contestón dice laura
+        - falta siempre a los exámenes
+        - igual no están lo suficientemente pendientes
     - toni
+        - hablamos con sus familia igual que con alí
     - encima estos dos están todo el rato distrayéndose el uno al otro. no paran.
     - marcello
         - en mates participa pero no trabaja, no hace deberes
+        - se distrae todo el rato con la tablet, en muchos
+        - que asista sobre todo cuando hay exámenes. falta mucho
+        - los papis le dejan faltar
+        - no recupera la primera de plástica
 - alumnos de atención especial:
     - paola
     - salma
 - con dificultades pero bosses:
     - toño DEA
+        - tiene dificultades y trabaja poco 
+        - si no desarrolla hábitos va a tener problemas
+        - muy infantil. como por debajo de sus compañeros
+        - que desarrolle hábitos de estudio!!!
+        - sergio vaquero se ríe de él
 - resto:
 - se genera el actilla con el excel como en la 1ª EV y se envía copia por pdf a los profes tras la reu
 - se lleva actilla con cambios a secretaría

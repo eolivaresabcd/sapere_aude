@@ -132,3 +132,19 @@
 - Protocolo de suicidio, salud mental Cayetana de Diver.
 - 3ºC ha venido una alumna nueva que se llama Melania. La tiene Pilar.
 - Práctica Docente: Hay que hacer un cuestionario nuevo para el departamento.
+
+- # 26/03/12
+- hay que rellenar resultados académicos
+- fechas pendientes: 
+    - bachillerato lo hace MA en su aula y lo hace el jueves 16 de abril a las 8:30. en la B1.
+    - ESO (todos los cursos) se hace a séptima el martes 14 de abril (Se hace 1º 2º y 3º)
+    - NO hay recuperaciones de evaluaciones. Se hace un examen como parcial de la 3ª ev que realmente va a contar como recu de la 1ª y 2ª EV. No metemos nada de la tercera. Semana del 20 al 24 de abril:
+    - yo hago 1ºESO para el martes 21
+    - miguelangel hace el de 2ºESO 
+    - el de 3ESO no sé quién
+- 29 de abril juntas de derivaciones:
+    - se habla de los chavales que van a mandar a diver etc
+    - se hace de 2eso a 4eso
+    - nos dan una lista pero hay que estar aquí para ver si los tenemos
+- intercambio USA:
+    - 16 marzo al 25 marzo
