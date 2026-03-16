@@ -72,7 +72,7 @@
         - sergio vaquero se ríe de él
 - resto:
 - se genera el actilla con el excel como en la 1ª EV y se envía copia por pdf a los profes tras la reu
-- se lleva actilla con cambios a secretaría
+- se lleva actilla con cambios a secretaría DONE
 - completar info sobre acuerdos y medidas en la web del profe
 - descargar pdf y firmarlo digitalmente
 - subirlo a tarea de classroom de evaluación que abre Jefatura
