@@ -29,8 +29,56 @@ SALMA:
 ALI:
 - laura geo hist: Por cierto,  no sé si Alí es tuyo, pero no me gusta su actitud este trimestre, está contestón y vago. De hecho ha pasado de un 6 en el primer trimestre a un 3,7 en este. En varias guardias que he hecho con ellos me ha respondido mal cuando le decía que dejase de hablar y trabajase algo. 
 
+# MIKEL
+## 2026/03/17 Impresiones tras la 2ª EV
+- MOTIVO: Madre solicita tutoría para ayudar a Mikel a mejorar en los exámenes de Matemáticas. Profesor aprovecha para comentar insights compartidos en el claustro de la segunda evaluación.
+- TEMAS TRATADOS / PROBLEMAS DETECTADOS: 
+    - En Lengua la alumna ha bajado su rendimiento aunque en las últimas semanas, con mucha ayuda, parece que remonta.
+    - Reli (Con María): dificultades enormes de lectoescritura. Se propone usar convertidores de texto a escrito, pruebas orales, realizar pruebas con apoyo de PT (Pedagogía Terapéutica) y AL (Audición y Lenguaje)
+    - Geo / Hist: Tarda hasta 20 min en ponerse a trabajar, se entretiene en qué color usar, no hace prácticamente nada en el aula
+    - Mates: aparte de esto, se distrae todo el rato mirando hacia atrás. Me enseñó las fichas que hace en casa. Creo que tenemos que empezar a enseñarla a ser más autónoma. No quería hacer el horario en Tutoría pq no sabía qué hacía.
+    - Plástica: se le olvida el material, a pesar de que la profe lo manda con muchísima antelación.
+    - Inglés: la profe le pide que se prepare con antelación textos que NO VAN A LEER EN ALTO, pero que sí van a resolver preguntas sobre ellos y no se los prepara.
+    - general: 
+        - no puede contar con apoyo de PT y AL en el día a día, porque su tipo de impedimento no está incluido entre los NEE (necesidades educativas especiales)
+        - se están haciendo entrevistas a todos los alumnos que están teniendo dificultades con las asignaturas. A ver si después de eso se puede tomar alguna medida especial con Mikel
+        - de momento, PT y AL durante los exámenes cuando lo necesite y cuando lo consideren los profeosres.
+        - se sugiere exigir más autonomía desde casa.
+- ACUERDOS TOMADOS
+    - en exámenes:
+        - cortar o doblar examenes con mikel
+        - subrayar
+        - leer en alto
+        - se estudia la opción de lectores de texto para los exámenes. cuando mikel adquiera destreca para usar lectores de texto, nos lo comentan y lo ponemos en marcha.
+        - se estudia la opción de exámenes orales.
+        - preguntarle mucho en clase y evaluar eso
+        - que eche fotos de la pizarra
+        - PCTERA examenes solo si aplica y en tiempos cortos.
+        - ÉXITO? Que se haga la protagonista de su formación académica
+        - En casa siguen trabajando con su profesora particular
+        - En el cole: 
+            - los padres piden contacto físico para ayudar a mikel a relajarse
+            - ejercicios de uno en uno
+            - evaluación oral
+            - anticipación a las pruebas de clase
 
+# MARCELLO
+- Robert Lanni (tlf.655.507.907)
 
+## 2026/03/19 Llamada de atención tras 2ªEV
+Comunicación telefónica: padres y tutor
+MOTIVO: marcello suspende 5 asignaturas por no entregar tarea
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: 
+    - los padres dicen que sí la entrega pero que no llega
+    - el tutor dice que delante de él, marcello no tiene problemas para enviar la tarea
+    - los mensajes por correo no llegaban. se asegura que el canal de comunicación funciona y se verifica con correos test de ida y vuelta
+ACUERDOS TOMADOS:
+    - los padres se comprometen a estar más encima del Classroom de Marcello, para asegurarse de que efectivamente realiza la tarea.
+    - se comprometen a escribir por correo al tutor ante cualquier problema, y hacerlo a tiempo.
+
+# DANIELA JUDITH ARDÓN PINEDA
+
+## 2026/03/19 Llamada de atención tras 2ªEV
 
 Comunicación telefónica: madre, tutor.
 

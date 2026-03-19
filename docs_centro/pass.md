@@ -6,6 +6,6 @@ e.olivares.abcd@gmail.com
 para imprimir: la de siempre pass y eduardo.olivareslopez
 aplicaciones.sapere@gmail.com para que los chicos descarguen apps en sus tablets. pass: Sapere2025-26
 cursos anpe: e.olivares.abcd user; pass: la de siempre
-banco mio: la de siempre sin caracteres raros manteniendo mayus y minus como siempre
+banco mio: la de siempre sin los últimos 4 caracteres raros manteniendo mayus y minus como siempre
 banco con can: you know which 8
 sociescuela: la de siempre

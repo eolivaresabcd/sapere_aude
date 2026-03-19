@@ -1,0 +1,11 @@
+- solo responden 11
+- lo bueno:
+    - explicaciones claras
+    - resuelvo dudas
+    - buen ambiente
+    - favorezco participación
+- lo mejorable:
+    - hacer un previously y next chapter
+    - no mandar tantos deberes
+    - usar más las TIC
+    - sacar más a la pizarra

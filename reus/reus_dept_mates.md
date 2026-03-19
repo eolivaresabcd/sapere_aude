@@ -133,7 +133,7 @@
 - 3ºC ha venido una alumna nueva que se llama Melania. La tiene Pilar.
 - Práctica Docente: Hay que hacer un cuestionario nuevo para el departamento.
 
-- # 26/03/12
+# 26/03/12
 - hay que rellenar resultados académicos
 - fechas pendientes: 
     - bachillerato lo hace MA en su aula y lo hace el jueves 16 de abril a las 8:30. en la B1.
@@ -148,3 +148,7 @@
     - nos dan una lista pero hay que estar aquí para ver si los tenemos
 - intercambio USA:
     - 16 marzo al 25 marzo
+
+# 26/03/19
+- recopilamos quién tiene que rellenar el plan de mejora. a mí me toca E1A. estamos pendientes de que jefatura nos lo mande para rellenar.
+- nos manda miguel un calendario con todas las fechas importantes.
