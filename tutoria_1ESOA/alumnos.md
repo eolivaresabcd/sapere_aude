@@ -30,6 +30,7 @@
     - el tutor correspondiente tiene que hacer el anexo que firma el tutor y la familia. original para nosotros y copia para la familia. el tutor es el responsable de conciliar las medidas entre todos
 - britez	villarreo	elena denisse 622020987 622542447 (denis) enmanuelbritez98@gmail.com
     - 665645168 ESTE ES EL NÚMERO AL QUE HAY QUE LLAMAR
+    - 622020987 Delia (número facilitado por el padre)
     - nivel muy bajo
     - padres separados
     - repitió un curso
@@ -342,3 +343,4 @@ MOTIVO: conflicto con álvaro díaz E1D.
 TEMAS TRATADOS / PROBLEMAS DETECTADOS: problema empieza en noviembre. juanita deja de ser amiga de álvaro por que él comienza a relacionarse con malas influencias y a fumar vaper. él la presiona para que siga siendo su amiga y no acepta la negativa por respuesta. el domingo pasado se presenta en su casa junto con 2 amigos de la clase para hablar con ella y juanita se encierra en casa presa del miedo. comenta la situación por WA a sus amigos de 2ºESO, que vienen a echar a los de 1ºESO. El lunes siguiente falta al colegio por miedo y ansiedad. comenta que el chico y sus amigos pasean al lado de ella y la miran, le han pegado un coscorrón en la cabeza, y la hacen sentir mal en clase de religión (la única en la que coinciden). álvaro hace en numerosas ocasiones comentarios racistas y se sospecha que pueda tener graves problemas en casa.
 
 ACUERDOS TOMADOS: profesor habla con jefatura y orientación. comunica a la alumna que le cuente si sigue pasando situacones desagradables o de miedo con el otro alumno. jefatura hablará por separado con los chicos y resuelve el problema con la ayuda de orientación, que a su vez investigará la situación familiar del chico.
+

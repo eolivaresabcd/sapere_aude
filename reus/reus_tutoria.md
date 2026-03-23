@@ -268,6 +268,13 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - alex me dice que aún tiene pendiente hablar con Daniel Durán. Igual Sonia ya ha hablado con él. En cuanto sepan me comentan.
 - bea, inés y mónica van a empezar con entrevistas a peñita con dislexia para ver qué tal van y tantear. El dept de Orientación va a hacer un seguimiento de ellos. Avisar a los padres por correo.
 
+# 26/03/20
+- nuevas propuestas alumnos plan refuerza:
+    - toni casi casi que entra en el plan
+    - durán al final de la lista
+    - alí creo que también puede entrar
+- cacharreamos un poquito con knowunity herramienta para que los chavales estudien
+
 # siguiente
 - cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
 - en la evaluación, que expongan los delegados lo del buzón de quejas y propuestas.

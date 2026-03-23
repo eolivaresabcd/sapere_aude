@@ -76,14 +76,33 @@ ACUERDOS TOMADOS:
     - los padres se comprometen a estar más encima del Classroom de Marcello, para asegurarse de que efectivamente realiza la tarea.
     - se comprometen a escribir por correo al tutor ante cualquier problema, y hacerlo a tiempo.
 
+# ELENA DENNISSE BRÍTEZ VILLARREO
+## 2026/03/23 Elena decae del Plan Refuerza
+
+Comunicación telefónica: padre, tutor.
+
+MOTIVO: Se le comunica al padre que Elena ha decaído de la lista de asistentes al Plan Refuerza.
+
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: Ha estado haciendo pellas durante las dos últimas semanas y se ha decidido ceder su puesto a algún alumno que de verdad aproveche el programa. Se intenta comunicar esto a la madre, pero tras numerosos intentos es imposible contactar con ella. El padre muestra desesperanza, impotencia y falta de acción. Dice que no puede hacer nada porque la alumna vive con su madre.
+
+ACUERDOS TOMADOS: El profesor intenta comunicar esta información a la madre.
+
 # DANIELA JUDITH ARDÓN PINEDA
-
-## 2026/03/19 Llamada de atención tras 2ªEV
-
+## 2026/03/23 Llamada de atención tras 2ªEV
 Comunicación telefónica: madre, tutor.
 
-MOTIVO: Madre pide actualización situación escolar de su hijo.
+MOTIVO: Se le comunica a la madre que Daniela ha decaído de la lista de asistentes al Plan Refuerza.
 
-TEMAS TRATADOS / PROBLEMAS DETECTADOS: Oliver es un alumno ejemplar. Presenta siempre la mejor actitud en clase: participa, pregunta, ayuda a los compañeros, toma notas, etc. Además va aprobando todo. En cuanto a su situación social es favorable. Se lleva bien con los demás y genera un clima positivo en el grupo-clase. Es algo disperso en ocasiones pero nada excesivamente preocupante a su edad.
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: Ha estado haciendo pellas durante las dos últimas semanas y se ha decidido ceder su puesto a algún alumno que de verdad aproveche el programa. La madre además sabe que su hija asiste al baño para vapear. Está muy disgustada por su comportamiento y pide ayuda a los profesores para ayudar a encaminar a su hija hacia el éxito académico.
 
-ACUERDOS TOMADOS: Profesor comunica a la madre si surgiera alguna cosa. La madre se comunica con el profesor si surge cualquier inquietud.
+ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pertienentes castigos por el mal comportamiento de Daniela. Se compromete a chequear el Classroom con frecuencia para asegurarse de que su hija realiza la tarea correctamente.
+
+# KRISTEN ARIANA GUZMÁN MEJÍA
+## 2026/03/23 Llamada de atención tras 2ªEV
+Comunicación telefónica: madre, tutor.
+
+MOTIVO: Se le comunica a la madre que Kristen ha decaído de la lista de asistentes al Plan Refuerza.
+
+TEMAS TRATADOS / PROBLEMAS DETECTADOS: Ha estado haciendo pellas durante las dos últimas semanas y se ha decidido ceder su puesto a algún alumno que de verdad aproveche el programa. La madre además sabe que su hija asiste al baño para vapear. Está muy disgustada por su comportamiento y pide ayuda a los profesores para ayudar a encaminar a su hija hacia el éxito académico. La madre también comenta que hay una niña que se sigue riendo de Kristen por su nariz.
+
+ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pertienentes castigos por el mal comportamiento de Daniela. Se compromete a chequear el Classroom con frecuencia para asegurarse de que su hija realiza la tarea correctamente. El profesor hablará con Kristen sobre el tema del acoso de la niña mencionada para ver cómo actuar.
