@@ -62,6 +62,12 @@ ALI:
             - evaluación oral
             - anticipación a las pruebas de clase
 
+## 2026/03/24 Hay que ponerse las pilas en clase.
+- Comunicación presencial: alumna, tutor.
+- MOTIVO: la alumna se tiene que esforzar más en el día a día.
+- TEMAS TRATADOS: para poder aprovechar al máximo sus clases particulares, Mikel tiene que hacerse la protagonista de su aprendizaje: preguntando dudas, pidiendo ayuda, participando en clase, etc.
+- ACUERDOS: La alumna se compromete a tomar las riendas de su vida académica, a aceptar sus dificultades, y a tirar hacia delante esforzándose al 100%.
+
 # MARCELLO
 - Robert Lanni (tlf.655.507.907)
 
@@ -96,6 +102,12 @@ MOTIVO: Se le comunica a la madre que Daniela ha decaído de la lista de asisten
 TEMAS TRATADOS / PROBLEMAS DETECTADOS: Ha estado haciendo pellas durante las dos últimas semanas y se ha decidido ceder su puesto a algún alumno que de verdad aproveche el programa. La madre además sabe que su hija asiste al baño para vapear. Está muy disgustada por su comportamiento y pide ayuda a los profesores para ayudar a encaminar a su hija hacia el éxito académico.
 
 ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pertienentes castigos por el mal comportamiento de Daniela. Se compromete a chequear el Classroom con frecuencia para asegurarse de que su hija realiza la tarea correctamente.
+
+## 2026/03/25 llamada de atención por pellas Plan Refuerza
+- Comunicación presencial: alumna, tutor.
+- MOTIVO: llamada de atención por pellas Plan Refuerza
+- TEMAS TRATADOS: Se le comenta a la alumna que esa ayuda es un privilegio. Que ella está yendo en lugar de otros que también lo necesitan y que es una pena que no lo aproveche. Que se está gastando dinero y tiempo para que ella busque un buen futuro y que no está poniendo lo que debe por su parte. 
+- ACUERDOS: Se le expulsa un mes del programa. Solo se le reincorpora si se ve un cambio drástico en su actitud durante las clases. La alumna se compromete a esforzarse más y aprovechar todos los recursos de los que dispone.
 
 # KRISTEN ARIANA GUZMÁN MEJÍA
 ## 2026/03/23 Llamada de atención tras 2ªEV
