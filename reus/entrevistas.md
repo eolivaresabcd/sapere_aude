@@ -118,3 +118,10 @@ MOTIVO: Se le comunica a la madre que Kristen ha decaído de la lista de asisten
 TEMAS TRATADOS / PROBLEMAS DETECTADOS: Ha estado haciendo pellas durante las dos últimas semanas y se ha decidido ceder su puesto a algún alumno que de verdad aproveche el programa. La madre además sabe que su hija asiste al baño para vapear. Está muy disgustada por su comportamiento y pide ayuda a los profesores para ayudar a encaminar a su hija hacia el éxito académico. La madre también comenta que hay una niña que se sigue riendo de Kristen por su nariz.
 
 ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pertienentes castigos por el mal comportamiento de Daniela. Se compromete a chequear el Classroom con frecuencia para asegurarse de que su hija realiza la tarea correctamente. El profesor hablará con Kristen sobre el tema del acoso de la niña mencionada para ver cómo actuar.
+
+# FÁTIMA AHARRAR AFKIR
+## 2026/03/25 Juanita necesita apoyo
+- Comunicación presencial: alumna, tutor.
+- MOTIVO: Juanita, una compañera de clase y amiga de Fátima, necesita apoyo.
+- TEMAS TRATADOS: Juanita comenta a unas compañeras de Orientación que su madre vuelve a tener complicaciones con el cáncer. Esto provoca inseguridad en la alumna en todos los ámbitos. En el instituto se siente desplazada de su grupo de amigas y la soledad la abruma. No sabe con quien ir en los patios, pues ya no tiene un grupo fijo de amigos. El tutor pide a Fátima como amiga de Juanita y Delegada de Clase que la acompañe en estos momentos difíciles, que intente integrarla en la clase de nuevo para que ella se sienta arropada.
+- ACUERDOS: Fátima accede a la propuesta y se compromete a estar ahí para su amiga y a acompañarla en estos difíciles momentos.
