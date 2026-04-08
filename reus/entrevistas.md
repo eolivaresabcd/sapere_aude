@@ -132,3 +132,10 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - MOTIVO: La madre me escribió porque Antonio lloraba en casa y no saben por qué.
 - TEMAS TRATADOS: La madre me pide que por favor hable con él a ver si me puede comentar qué le pasa. Tras tener la conversación, el alumno no dice nada. Le transmito el mensaje de tranquilidad de que puede contar conmigo para lo que necesite y que también tiene un departamento de Orientación extraordinario que está ahí para todas sus preocupaciones e inquietudes. 
 - ACUERDOS: Que no dude en comentar lo que necesite en un futuro, que los adultos del centro estamos aquí para ayudar sin juzgar.
+
+# ANTONIO ALESSANDRO CORDOBA FARIÑAS
+## 2026/04/08 Se le propone para el Plan Refuerza. Feedback sobre 2a Eval.
+- Comunicación telefónica: padre, tutor.
+- MOTIVO: La madre me escribió por si su hijo podía acceder al Plan. Se aprovecha para dar Feedback sobre 2a Evaluación.
+- TEMAS TRATADOS: Antonio tiene que centrarse. Se distrae frecuentemente. Necesitamos que empiece a atender y a trabajar en clase y en casa. 
+- ACUERDOS: Los padres se comprometen a controlar más su implicación chequeando Classroom con mayor frecuencia. Me entregan la Autorización firmada para el Plan Refuerza para que Antonio empiece mañana mismo las clases de apoyo.

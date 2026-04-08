@@ -152,3 +152,7 @@
 # 26/03/19
 - recopilamos quién tiene que rellenar el plan de mejora. a mí me toca E1A. estamos pendientes de que jefatura nos lo mande para rellenar.
 - nos manda miguel un calendario con todas las fechas importantes.
+
+# 26/04/09
+- preguntar a miguel angel cuado se pone lo de tipificación de la variable o cuándo se pone lo del teorema central del límite
+- yo ya he empezado con el tema de funciones del libro
