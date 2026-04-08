@@ -125,3 +125,10 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - MOTIVO: Juanita, una compañera de clase y amiga de Fátima, necesita apoyo.
 - TEMAS TRATADOS: Juanita comenta a unas compañeras de Orientación que su madre vuelve a tener complicaciones con el cáncer. Esto provoca inseguridad en la alumna en todos los ámbitos. En el instituto se siente desplazada de su grupo de amigas y la soledad la abruma. No sabe con quien ir en los patios, pues ya no tiene un grupo fijo de amigos. El tutor pide a Fátima como amiga de Juanita y Delegada de Clase que la acompañe en estos momentos difíciles, que intente integrarla en la clase de nuevo para que ella se sienta arropada.
 - ACUERDOS: Fátima accede a la propuesta y se compromete a estar ahí para su amiga y a acompañarla en estos difíciles momentos.
+
+# ANTONIO ESCRIBANO SARMIENTO
+## 2026/04/07 Madre me escribió porque Antonio lloraba en casa y no saben por qué. 
+- Comunicación presencial: alumno, tutor.
+- MOTIVO: La madre me escribió porque Antonio lloraba en casa y no saben por qué.
+- TEMAS TRATADOS: La madre me pide que por favor hable con él a ver si me puede comentar qué le pasa. Tras tener la conversación, el alumno no dice nada. Le transmito el mensaje de tranquilidad de que puede contar conmigo para lo que necesite y que también tiene un departamento de Orientación extraordinario que está ahí para todas sus preocupaciones e inquietudes. 
+- ACUERDOS: Que no dude en comentar lo que necesite en un futuro, que los adultos del centro estamos aquí para ayudar sin juzgar.
