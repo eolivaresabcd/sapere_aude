@@ -156,3 +156,18 @@
 # 26/04/09
 - preguntar a miguel angel cuado se pone lo de tipificación de la variable o cuándo se pone lo del teorema central del límite
 - yo ya he empezado con el tema de funciones del libro
+- se habló en el claustro de ayer:
+    - 14 y 15 de abril pruebas externas Comunidad de Madrid para 2º y 4º ESO
+    - viene cayetana marin a 4º diver. cuidaito con ella. vuelve del hospi después de un intento de suicidio.
+    - nerea luz de E2E por intento de autolesiones. cuidao. si no viene, a jefatura o a orientación para que la busquen.
+    - jornadas TEA 14, 15 y 16 por la tarde. Dan 1 punto por formación si vamos.
+- fechas globales:
+    - 1ESO: martes 2 de junio (Lo hago yo)
+    - 2ESO: jueves 4 de junio (Lo hace Miguel Angel)
+    - 3ESO: lunes 1 de junio / martes 2 de junio (Lo hace Pilar)
+    - 4ESO: jueves 4 de junio (Lo hace Noe)
+    - 1BACH: ???
+    - 2BACH: ???
+- jueves 16 hace miguel angel un examen pendiente y nos anima a meter a peñita con él si tenemos algún examen pendiente
+- hwk: hacer el exam de 1a y 2a ev cuanto antes para decir a los chavales lo que entra con más detalle
+

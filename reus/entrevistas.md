@@ -139,3 +139,11 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - MOTIVO: La madre me escribió por si su hijo podía acceder al Plan. Se aprovecha para dar Feedback sobre 2a Evaluación.
 - TEMAS TRATADOS: Antonio tiene que centrarse. Se distrae frecuentemente. Necesitamos que empiece a atender y a trabajar en clase y en casa. 
 - ACUERDOS: Los padres se comprometen a controlar más su implicación chequeando Classroom con mayor frecuencia. Me entregan la Autorización firmada para el Plan Refuerza para que Antonio empiece mañana mismo las clases de apoyo.
+
+# ENTREVISTAS PENDIENTES (por orden de urgencia):
+- ali
+- fatima
+- salma
+- luna
+- adriana
+- paola
