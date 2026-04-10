@@ -275,8 +275,33 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
     - alí creo que también puede entrar
 - cacharreamos un poquito con knowunity herramienta para que los chavales estudien
 
-# siguiente
+# 26/04/10
 - cuando hagamos lo de organizar el estudio, igual que lo traigan firmado de casa el horario.
 - en la evaluación, que expongan los delegados lo del buzón de quejas y propuestas.
+- los del CAE vienen a ver a Elena para hacer no se qué cosas relacionadas con 
+- habla alex sobre candela torres, del grupo de sara:
+    - recibimos el martes dos correos de la madre diciendo que la niña ha estado llorando
+    - se meten con ella, no quiere ir a clase, la llaman rara, etc.
+    - falta al cole por no poder dormir el día anterior por todo esto
+    - la niña no quiere un cambio de clase porque se sentiría aún más señalada por los commpis
+    - se ha hablado con gente del club de compis para ver si ella percibe que puede haber algo
+    - parece ser más percepción personal de candela que otra cosa. ella tb tiene un historial de cambios de cole por bullying sufrido en otros coles.
+    - candela va a empezar a ver a una psicóloga nueva
+    - le cuestan las relaciones sociales y lo va a trabajar con ella
+    - arrastra problemas con otra compañera, Aya.
+    - el año que viene se intenta buscar otra clase donde se encuentre más cómoda
+    - alex pide que los profes hagan los grupos un poco teniendo en cuenta todo esto
+    - no podemos juntar a candela con elsa, porque no es buena esa relación (ni contigo ni sin ti). elsa interpreta que candela es de "su propiedad". La relación es un poco viciada y fea.
+- ayer reventó mario herranz en tutoría a elena:
+    - conflicto entre marcos príncipe y él. Le insultó y mario se puso a insultarle de vuelta y a llorar. 
+    - dice bea que este chico va acumulando y de repente explota
+    - elena dice que le ha pedido que se comunique constantemente con ella pero él no le cuenta nada
+    - el chaval tiene altas capacidades y tdah, que son cosas que se contrapesan
+    - dice que alejandro se mete con él desde primaria
+    - él rumia mucho, le da muchas vueltas a los problemas
+    - el chaval está muy contento en el synapse, pero lo pasa mal en clase y en los recreos
+    - dice bea que el paso de las vacaciones a la rutina desrregula a la gente neurodivergente típicamente
+- 
 
 # HWK
+- hay que contactar con los padres de los que tienen muchas suspensas urgentemente
