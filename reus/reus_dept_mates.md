@@ -171,3 +171,6 @@
 - jueves 16 hace miguel angel un examen pendiente y nos anima a meter a peñita con él si tenemos algún examen pendiente
 - hwk: hacer el exam de 1a y 2a ev cuanto antes para decir a los chavales lo que entra con más detalle
 
+# 26/04/17
+- preguntar qué hago con paola si no puedo evaluarla con global y tal.
+
