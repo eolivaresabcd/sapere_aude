@@ -303,5 +303,24 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
     - dice bea que el paso de las vacaciones a la rutina desrregula a la gente neurodivergente típicamente
 - 
 
+# 26/04/17
+- se comenta el linchamiento al chaval nuevo que pegó a uno de 1ESO
+- con los de primero vamos a hacer una tutoría sobre justicia o barbarie. civilización o barbarie.
+    - tenemos derecho a equivocarnos y a rectificar
+    - el problema no solo está en el conflicto. También está en la participación.
+    - quién pensó se lo merece? quién pensó qué divertido? quién pensó en separar o poner fin?
+- el chaval tiene discapacidad auditiva
+- cociente intelectual bajo
+- cuerpo de tres plazas de armario
+- una parte de la familia que le dice defiéndete
+- al chaval le están machacando e insultando desde pequeño
+- está en tratamiento psiquiátrico y psicológico
+- tiene protocolo de suicidio
+- ya le han pedido sus padres un centro especial
+- no verbaliza y no habla
+- le han tocado mucho los huevos durante toda la vida y ha pegado dos puñetazos bien pegaos y ya
+- está siendo juzgado por la parte judicial. no se puede tomar la justicia a palos por nuestra mano.
+- hay que saber diferenciar la info real de la no real
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente

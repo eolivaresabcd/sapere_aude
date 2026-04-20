@@ -172,5 +172,6 @@
 - hwk: hacer el exam de 1a y 2a ev cuanto antes para decir a los chavales lo que entra con más detalle
 
 # 26/04/17
+- el chaval nuevo este le cambian de clase a e2b para que no coincida con los 50 chavales que le quieren pegar. el chaval tiene discapacidad. el chaval es muy grande y pegó a un niño de 1eso del cole desde el que viene.
 - preguntar qué hago con paola si no puedo evaluarla con global y tal.
 
