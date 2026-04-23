@@ -175,3 +175,5 @@
 - el chaval nuevo este le cambian de clase a e2b para que no coincida con los 50 chavales que le quieren pegar. el chaval tiene discapacidad. el chaval es muy grande y pegó a un niño de 1eso del cole desde el que viene.
 - preguntar qué hago con paola si no puedo evaluarla con global y tal.
 
+# 26/04/23
+- hemos echado un repaso al excel de pendientes, mirando notas de exámenes y trabajos. kary ha suspendido el examen y no ha entregado el trabajo.
