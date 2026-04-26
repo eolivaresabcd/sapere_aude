@@ -322,5 +322,12 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - está siendo juzgado por la parte judicial. no se puede tomar la justicia a palos por nuestra mano.
 - hay que saber diferenciar la info real de la no real
 
+# 26/04/24
+- email del padre de mario herranz por una agresión que ha sufrido en la ruta de wael. dice bea que estaremos en ello. bea lee el email en el que padre comenta los hechos.
+- elsa y candela (de la clase de Sara). cuando viene elsa está abstraída en su mundo. no tiene problemas pero tampoco socializa. 
+- paula: tuvo ayer servicios sociales una reunión con la familia. la niña está dejando de rendir académicamente por la situación.
+- ariadna davila quiere que le llamemos yalí. la hemos mandado a fiscalía con el informe y en casa no están respondiendo bien. la madre no le hacía ni la comida. el padrastro está engorilao. golpes en las puertas y en las paredes. humillaciones y comments negativos.
+- bianca: murió la abuela. el padre sigue bebiendo. 
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente
