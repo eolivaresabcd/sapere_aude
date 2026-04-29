@@ -140,6 +140,14 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - TEMAS TRATADOS: Antonio tiene que centrarse. Se distrae frecuentemente. Necesitamos que empiece a atender y a trabajar en clase y en casa. 
 - ACUERDOS: Los padres se comprometen a controlar más su implicación chequeando Classroom con mayor frecuencia. Me entregan la Autorización firmada para el Plan Refuerza para que Antonio empiece mañana mismo las clases de apoyo.
 
+# JULIA ÁLVAREZ LOZANO
+## 2026/04/29 Cómo superar la asignatura de Mates.
+- Comunicación telefónica: madre, tutor.
+- MOTIVO: La madre me escribió para ayudar a Julia a aprobar la asignatura de Mates.
+- TEMAS TRATADOS: A pesar de trabajar mucho en casa está perdida y no termina de aprobar los exámenes, según la madre. Le comento que en clase no atiende, se distrae con los compañeros y pierde mucho el tiempo. Le insisto en la importancia de desarrollar hábitos buenos de estudio. 
+- ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Julia lo hablado por teléfono con su madre.
+
+
 # ENTREVISTAS PENDIENTES (por orden de urgencia):
 - ali
 - fatima
