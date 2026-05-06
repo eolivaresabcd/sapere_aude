@@ -147,11 +147,16 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - TEMAS TRATADOS: A pesar de trabajar mucho en casa está perdida y no termina de aprobar los exámenes, según la madre. Le comento que en clase no atiende, se distrae con los compañeros y pierde mucho el tiempo. Le insisto en la importancia de desarrollar hábitos buenos de estudio. 
 - ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Julia lo hablado por teléfono con su madre.
 
+# SALMA
+## 2026/05/06 actitud de Salma empeora considerablemente.
+- Comunicación telefónica: madre, tutor.
+- MOTIVO: actitud de Salma empeora considerablemente.
+- TEMAS TRATADOS: llega tarde a clase, vapea, contesta a los profesores, interrumpe la clase. Se está juntando con malas influencias. La madre observa que su actitud también ha empeorado en casa.
+- ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Salma lo hablado por teléfono con su madre. No me cansaré de concienciarla de la importancia de cuidar los hábitos y la actitud desde primero de la ESO.
 
 # ENTREVISTAS PENDIENTES (por orden de urgencia):
 - ali
 - fatima
-- salma
 - luna
 - adriana
 - paola

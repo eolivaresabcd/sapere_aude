@@ -329,5 +329,10 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - ariadna davila quiere que le llamemos yalí. la hemos mandado a fiscalía con el informe y en casa no están respondiendo bien. la madre no le hacía ni la comida. el padrastro está engorilao. golpes en las puertas y en las paredes. humillaciones y comments negativos.
 - bianca: murió la abuela. el padre sigue bebiendo. 
 
+# 26/04/08
+- rivalidad entre chicos y chicas de E1A empeora cada vez más: incidente de música.
+- hay algunas chicas imparciales concienciadas con esta mala dinámica y me cuentan lo que pasó.
+- charlita de sexualidad?
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente
