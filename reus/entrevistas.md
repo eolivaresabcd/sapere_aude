@@ -154,9 +154,15 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - TEMAS TRATADOS: llega tarde a clase, vapea, contesta a los profesores, interrumpe la clase. Se está juntando con malas influencias. La madre observa que su actitud también ha empeorado en casa.
 - ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Salma lo hablado por teléfono con su madre. No me cansaré de concienciarla de la importancia de cuidar los hábitos y la actitud desde primero de la ESO.
 
+# FÁTIMA
+## 2026/05/07 actitud de Fátima empeora considerablemente.
+- Comunicación telefónica: madre, tutor.
+- MOTIVO: actitud de Fátima empeora considerablemente.
+- TEMAS TRATADOS: llega tarde a clase, vapea, contesta a los profesores, interrumpe la clase. Se está juntando con malas influencias. La madre observa que su actitud también ha empeorado en casa. Está preocupada.
+- ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Fátima lo hablado por teléfono con su madre. No me cansaré de concienciarla de la importancia de cuidar los hábitos y la actitud desde primero de la ESO. Pido a los profes feedback de cómo va en sus clases y tengo una tutoría presencial con la madre.
+
 # ENTREVISTAS PENDIENTES (por orden de urgencia):
 - ali
-- fatima
 - luna
 - adriana
 - paola

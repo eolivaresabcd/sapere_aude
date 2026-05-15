@@ -334,5 +334,8 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 - hay algunas chicas imparciales concienciadas con esta mala dinámica y me cuentan lo que pasó.
 - charlita de sexualidad?
 
+# 26/05/15
+- nada especialmente importante
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente
