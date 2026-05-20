@@ -126,6 +126,17 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - TEMAS TRATADOS: Juanita comenta a unas compañeras de Orientación que su madre vuelve a tener complicaciones con el cáncer. Esto provoca inseguridad en la alumna en todos los ámbitos. En el instituto se siente desplazada de su grupo de amigas y la soledad la abruma. No sabe con quien ir en los patios, pues ya no tiene un grupo fijo de amigos. El tutor pide a Fátima como amiga de Juanita y Delegada de Clase que la acompañe en estos momentos difíciles, que intente integrarla en la clase de nuevo para que ella se sienta arropada.
 - ACUERDOS: Fátima accede a la propuesta y se compromete a estar ahí para su amiga y a acompañarla en estos difíciles momentos.
 
+## 2026/05/20 Fátima empeora drásticamente
+- Comunicación presencial: madre, tutor.
+- MOTIVO: Fátima empeora drásticamente
+- TEMAS TRATADOS: Todos los profes dicen lo mismo: los resultados de Fátima empeoran drásticamente porque ha dejado de esforzarse
+- ACUERDOS:
+    - concienciar a Fátima de la importancia de esforzarse ahora para tener un futuro mejor
+    - como delegada, tiene que dar ejemplo a sus compañeros
+    - la madre pide sentarla en primera fila (miopía y astigmatismo)
+    - la madre pide quitarle movil porque el vicio es la principal fuente de sus problemas
+    - el tutor le insistirá en la importancia de llevar gafas en clase para ver mejor
+
 # ANTONIO ESCRIBANO SARMIENTO
 ## 2026/04/07 Madre me escribió porque Antonio lloraba en casa y no saben por qué. 
 - Comunicación presencial: alumno, tutor.
@@ -153,6 +164,13 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - MOTIVO: actitud de Salma empeora considerablemente.
 - TEMAS TRATADOS: llega tarde a clase, vapea, contesta a los profesores, interrumpe la clase. Se está juntando con malas influencias. La madre observa que su actitud también ha empeorado en casa.
 - ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Salma lo hablado por teléfono con su madre. No me cansaré de concienciarla de la importancia de cuidar los hábitos y la actitud desde primero de la ESO.
+## 2026/05/20 Salma no está de acuerdo con retrasos. Dice ser ignorada en clase.
+- Comunicación telefónica: madre, tutor.
+- MOTIVO: Salma dice que la ignoro en clase y que le apunto falsos retrasos
+- TEMAS TRATADOS: La madre comenta el motivo mencionado. El tutor asegura que las alegaciones no son ciertas. Recuerda la importancia de todos los valores y actitudes aprendidos durante las sesiones de tutoría de este curso.
+- ACUERDOS:
+    - el tutor hablará con la alumna para aclarar la situación
+    - posteriormente escribirá a la madre con todas las conclusiones sacadas en la conversación
 
 # FÁTIMA
 ## 2026/05/07 actitud de Fátima empeora considerablemente.
