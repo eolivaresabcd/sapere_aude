@@ -1,0 +1,13 @@
+# LABORATORIO ARQUÍMEDES
+- dibuja un círculo con un lápiz, utilizando el contorno de tu cantimplora
+- mide su diáametro y perímetro (regla rotativa, regla flexible, cordón del zapato, etc.)
+- calcula su ratio P / D = ?
+- observáis que los resultados se acercan al 3, algo?
+- hacemos media con los 10 primeros resultados de la clase
+- arquímedes lo hizo así para encontrar el número pi
+- fórmula perímetro círculo: despejar P / D = pi
+- y cómo área?
+- cuadrado, pentágono, hexágono, etc inscritos.
+- otra forma: cortar 16 quesitos y formar un rectángulo.
+- base = P/2; altura = R.
+- total, que área = pi * r * r

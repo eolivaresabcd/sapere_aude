@@ -337,5 +337,17 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
 # 26/05/15
 - nada especialmente importante
 
+# 26/05/22
+- orientación de la matrícula en 2 eso a los chavalines. 
+    - lo hacemos con la presentación que ha mostrado bea.
+    - materias optativas por orden de preferencia (importante que ordenen todas).
+    - cuidado que los refuerzos son eso, refuerzos. no son ampliaciones.
+    - bioprácticas son clases prácticas de biología
+    - las verdes se dan en ingles
+    - importante fechas matrícula y demás (está todo en la ppt)
+    - foto de carnet importante en formato digital y en papel
+    - con el NIA (se ve en raíces) se vincula toda la info
+    - TODO ESTO COLGADO EN EL CLASSROOM DE TUTORES
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente
