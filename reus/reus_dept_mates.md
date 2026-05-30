@@ -177,3 +177,10 @@
 
 # 26/04/23
 - hemos echado un repaso al excel de pendientes, mirando notas de exámenes y trabajos. kary ha suspendido el examen y no ha entregado el trabajo.
+
+# 26/05/28
+- noe comenta ccp:
+    - gradu 4eso el 12 de junio a las 11 am. se organizan actividades para 1eso ese día. o van a la excursión o NO van al centro.
+- se suspende la séptima a partir del lunes 8
+- para poner nota en raíces primero poner ev3 y luego la final
+- lo de la evaluación competencial?

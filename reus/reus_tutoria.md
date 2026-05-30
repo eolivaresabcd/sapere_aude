@@ -349,5 +349,27 @@ Ley Orgánica 1/2004, de 28 de diciembre, de Medidas de Protección Integral con
     - con el NIA (se ve en raíces) se vincula toda la info
     - TODO ESTO COLGADO EN EL CLASSROOM DE TUTORES
 
+# 26/05/22
+- nos enseñan el vídeo de devolución de info de salud a los chavales.
+
 # HWK
 - hay que contactar con los padres de los que tienen muchas suspensas urgentemente
+- chequeamos que todos los alumnos están en la lista para evaluarlos por competencia en la web del profe
+- el día 12 es la graduación de 4eso. 
+    - hacemos una salida con 1eso.
+    - se apuntan con un formulario de google a la actividad propuesta.
+    - si no se quedan en casa.
+    - vamos los tutores con ellos.
+    - a los problemáticos los están quitando de las excursiones.
+    - tercero a boca del asno: senderismo
+    - primero a la playa del alberche en aldea del fresno
+    - otro a las presillas
+    - a las 14:00 se vuelve
+    - pasarán los formularios a 1eso para que los rellenen
+- se retoma la semana cultural los días 15 al 19
+    - se forma una estructura por talleres:
+    - 90 min, 40 min recreo, 90, 40, 90 esto lo hacemos lunes martes y miércoles
+    - se prepara un taller de 1h y 30 para un día con los grupos de trabajo
+    - otro día vamos todos los de 1eso a la granja (probablemente jueves 18)
+    - el viernes 19 se dan las notas. vienen de 10:30 a 12:00 para que los tutores se las demos.
+    - un taller para 1eso, otro para 2eso y otro para 3y4 eso
