@@ -157,6 +157,12 @@ ACUERDOS TOMADOS: La alumna decae del Plan Refuerza. La madre ha puesto los pert
 - MOTIVO: La madre me escribió para ayudar a Julia a aprobar la asignatura de Mates.
 - TEMAS TRATADOS: A pesar de trabajar mucho en casa está perdida y no termina de aprobar los exámenes, según la madre. Le comento que en clase no atiende, se distrae con los compañeros y pierde mucho el tiempo. Le insisto en la importancia de desarrollar hábitos buenos de estudio. 
 - ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta recta final. Yo le comunicaré a Julia lo hablado por teléfono con su madre.
+## 2026/06/29 Julia tiene suspensa la 3a ev
+- Comunicación telefónica: madre, tutor.
+- MOTIVO: La madre me escribió tras el suspenso en el global de matemáticas.
+- TEMAS TRATADOS: A pesar de haber trabajado mucho en casa, suspende el global. Ha contestado muy poco aunque lo que ha hecho lo ha hecho bien. Le comento que en clase no atiende, se distrae con los compañeros y pierde mucho el tiempo. Le insisto en la importancia de desarrollar hábitos buenos de estudio. Le comento a la madre que mañana permitiré a Julia sacar foto a la prueba para que evalúen en casa qué ha podido fallar. Le comento a la madre lo crucial que es que Julia entregue las tareas restantes para obtener una calificación de 10, con lo que sería suficiente para aprobar la asignatura.
+- ACUERDOS: La madre tendrá una conversación con la hija para que apriete en esta resolución de deberes. La madre se compromete a trabajar durante el verano la asignatura para empezar con una base sólida el año que viene.
+
 
 # SALMA
 ## 2026/05/06 actitud de Salma empeora considerablemente.
