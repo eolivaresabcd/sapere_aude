@@ -184,3 +184,16 @@
 - se suspende la séptima a partir del lunes 8
 - para poner nota en raíces primero poner ev3 y luego la final
 - lo de la evaluación competencial?
+
+# 26/06/11
+- hemos llegado hasta:
+    - 1eso: áreas y perímetros (nos faltó estadística y probabilidad)
+    - 2eso: funciones (nos faltó toda la geometría)
+    - 3 eso: funs lineales (nos faltó parábolas)
+    - 4esoA: funciones
+    - 4esoB:geometría analítica los de ciencias (nos faltó probabilidad). probabilidad los de letras (nos faltó geometría).
+    - 1bach ccnn: no complejos ni probabilidad ni estadística
+    - 1bach ccss: visto todo
+    - 2bach: visto todo menos combinatoria
+- estos días de la semana preparar los examenes de pendientes del año que viene
+- se mete en la normativa del centro que si un alumno tiene el móvil durante un examen, se le suspende, pero no se le puede quitar la prueba. solo se apunta que ha usado el móvil.

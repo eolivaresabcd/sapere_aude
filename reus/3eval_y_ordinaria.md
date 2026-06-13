@@ -4,3 +4,119 @@
 - se hace esto para la tercera evaluación y para la ordinaria.
 - se ponen 5 matrículas de honor en total, por orden descendente de nota media. en caso de empate en la media, se le da la matrícula al alumno con más menciones de honor.
 - cristina calero queda quinta en la lista de matrículas con una nota media de 9,13.
+
+# E1A
+## PREEVALUACIÓN
+- dificultades detectadas:
+## EVALUACIÓN
+- comprobar notas actilla bien
+- promocionan:
+    - todos menos 5
+    - destacamos a sofía, oliver, adriana, olivia, luna, juanita, valentina. notables
+    - destacamos javi laia y sergio redondeando al sobresaliente.
+    - alumnos con alguna suspensa:
+        - fátima: por encima de lo académico. 0 esfuerzo. le viene bien haber suspendido una.
+        - tony: se distrae muchísimo con alí. incapaz de mantener la atención. no es alumno NEE pero daberíamos investigar.se le mete en el plan refuerza a petición de la madre. parece que lo aprovecha bien aunque no al 100% (notas de 3/4). aún le falta apretar en clase. (será TDAH?).
+        - salma: avandona mates desde el principio. desde inseguridad por estar sola hasta actitud irrespetuosa hacia compañeros y profesores. se mimetiza con el grupo disrruptivo para encajar. madre se queja de lo mismo en casa. alumna miente con falsos retrasos apuntados por mì. llega tarde, vapea.
+        - marcello: le queda valores y geo / hist. no sé por qué pero probablemente por no entrega de deberes. problema que arrastra desde principio de curso. a mitad de curso los padres confiesan que classroom lo supervisaba su hermano. en teoría comienzan a supervisar ellos así que deberían estar al tanto de las notas sin sorpresas. se comprometieron a escribirme ante cualquier cosa. 
+- no promocionan:
+    - estos tienen 13-14 años:
+    - daniela: le quedan 6. propongo repetir 1eso. pasarla a 2 eso. de manera excepcional tras 2eso meterla en fpb. alumna disrruptiva que acumula 13 partes, uno de ellos grave. está en todos los fregaos. le vendrá bien separarla del grupo.
+        - expulsada del plan refuerza.
+    - durán: le quedan 6. misma propuesta que daniela. solo 3 partes. algo menos disrruptivo y ya está separado de su grupo. repitió el año pasado, no puede volver a repetir primero?
+    - elena: le quedan 4. misma propuesta que anteriores. 5 partes (móvil y llegar tarde).
+         - expulsada del plan refuerza.
+    - estos tienen 12-13 años:
+    - kristen: le quedan 3. suspende mates, lengua y gh. salvo que apruebe por competencias, misma propuesta que anteriores. esta con más razón porque es joven. 5 partes. uno grave. movil, retraso y copiar. (perfil diver?). con buenas influencias puede que se centre.
+         - expulsada del plan refuerza.
+    - ali: le quedan 3. suspende mates (3), valores (4), musica (4). salvo que apruebe por competencias, que repita. lo haría por primera vez. perfil diver. 
+- ACNEES / ACNEAES
+    - marta: aprueba todo. media de 6.
+    - kerun: aprueba todo menos valores. media de 6. en mates hay que llevarle a hacer exámenes arriba para que le expliquen enunciados.
+
+- juntar separar: 
+    - daniela, elena, kristen, salma, fátima, durán separadas.
+    - laia, mikel, olivia juntas.
+    - valentina, luna, juanita, adriana, sofía, julia juntas
+    - javier, oliver, toño, marcello, sergio juntos
+    - separar grupo grande de chicos de grupo grande de chicas (se llevan fatal)
+    - ali y tony separados
+    - paola con su amiga de otro grupo
+    - marta y kerun juntar. marta en el grupo de julia?
+
+- tras mirar la información que han rellenado los demás profes en la web del profe, se observan los siguientes resultados:
+- alumnos preocupantes: las del plan refuerza (mirar 2 correos maría 1 por ámbito):
+    - daniela:
+        - molesta, disruptiva, arrastra a los demás
+        - responde a todo
+        - situación académica:
+        - disciplina: 
+        - absentismo: 
+        - propuestas de derivación: 
+    - kristen: 
+        - comiendo en clase
+        - usan el móvil
+    - elena:
+        - son el trío calavera
+        - las tres iguales
+    - estas tres tienen mucho peligro de suspender
+- repetidores: 
+    - durán REPE
+        - por cierto, hay que cambiar en la web del profesor en la sección de la segunda evaluación, donde los comments, que SÍ es repetidor.
+        - con nati ha empezado a trabajar más
+        - con belén sí molesta y entra a las peleas con daniela. cree que con ella va a suspender.
+- alumnos con mazo dificultades:
+    - marta TEL
+        - Seguimiento de las medidas (ACIs, medidas de evaluación,...)
+        - Análisis de la situación académica
+        - Propuestas
+        - Plan Individualizado de Enriquecimiento
+        - marta es maravillosa, con sus cosas, pero muy trabajadora y muy educada
+    - kerun TEL
+        - nati tiene a kerun con asterisco también
+        - no hace nada en plastica y no tiene motivación para entregar la tarea
+    - mikel TDAH y Dislexia extrema (están en pruebas ahora)
+        - despistada en clase un montón
+        - muchas dificultades de lectoescritura
+        - no puede contar con apoyo de PT y AL, pero vemos como la podemos ayudar
+        - cuando hagan la reevaluación en Orientación, nos dicen qué hacemos
+        - es vaga con laura, igual que conmigo. en clase
+        - eva le da los textos antes para que se los prepare
+        - maría dice que no le haga leer, que es una tortura para ella
+        - se le olvida el material para plástica
+- vagos: estos suspenden entre 2 y 3 más asignaturas que el trimestre pasado. Caen en las que tenían un 5 en la evaluación anterior.
+    - alí (trastorno del aprendizaje. DEA)
+        - muy contestón dice laura
+        - falta siempre a los exámenes
+        - igual no están lo suficientemente pendientes
+    - toni
+        - hablamos con sus familia igual que con alí
+    - encima estos dos están todo el rato distrayéndose el uno al otro. no paran.
+    - marcello
+        - en mates participa pero no trabaja, no hace deberes
+        - se distrae todo el rato con la tablet, en muchos
+        - que asista sobre todo cuando hay exámenes. falta mucho
+        - los papis le dejan faltar
+        - no recupera la primera de plástica
+- alumnos de atención especial:
+    - paola
+    - salma
+- con dificultades pero bosses:
+    - toño DEA
+        - tiene dificultades y trabaja poco 
+        - si no desarrolla hábitos va a tener problemas
+        - muy infantil. como por debajo de sus compañeros
+        - que desarrolle hábitos de estudio!!!
+        - sergio vaquero se ríe de él
+- resto:
+- se genera el actilla con el excel como en la 1ª EV y se envía copia por pdf a los profes tras la reu
+- se lleva actilla con cambios a secretaría 
+- completar info sobre acuerdos y medidas en la web del profe (los dos recuadritos a rellenar por el tutor)
+- descargar pdf y firmarlo digitalmente
+- subirlo a tarea de classroom de evaluación que abre Jefatura
+- descargar registro de entrevistas con familias y firmarlo digitalmente tb y pasarlo tb por la tarea classroom
+
+## POSTEVALUACIÓN
+- se analizan resultados cuantitativamente
+- se informa a los alumnos de acuerdos y medidas tomadas por los profes
+- se discute y debate sobre estos acuerdos tomados y el cómo hacer un seguimiento efectivo
