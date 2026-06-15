@@ -9,6 +9,7 @@
 ## PREEVALUACIÓN
 - dificultades detectadas:
 ## EVALUACIÓN
+- WEB DEL PROFE 3EV ABIERTA
 - comprobar notas actilla bien
 - promocionan:
     - todos menos 5
@@ -117,6 +118,10 @@
 - descargar registro de entrevistas con familias y firmarlo digitalmente tb y pasarlo tb por la tarea classroom
 
 ## POSTEVALUACIÓN
+- rellenar en la web del profe:
+    - número de suspensos
+    - visión del tutor
+    - decisiones tomadas en junta
 - se analizan resultados cuantitativamente
 - se informa a los alumnos de acuerdos y medidas tomadas por los profes
 - se discute y debate sobre estos acuerdos tomados y el cómo hacer un seguimiento efectivo
