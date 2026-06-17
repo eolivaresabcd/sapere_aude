@@ -9,10 +9,14 @@
 ## PREEVALUACIÓN
 - dificultades detectadas:
 ## EVALUACIÓN
+- ARCHIVO ALUMNOS.MD ABIERTO
+- ARCHIVO ENTREVISTAS.MD ABIERTO
+- ENTREVISTAS CHAVALES WEB PROFE ABIERTO
 - WEB DEL PROFE 3EV ABIERTA
-- comprobar notas actilla bien
+- ACTAS MANDADAS POR JEFATURA ABIERTAS
+- YA comprobadas notas actilla bien
 - promocionan:
-    - todos menos 5
+    - todos menos 4 (durán repite)
     - destacamos a sofía, oliver, adriana, olivia, luna, juanita, valentina. notables
     - destacamos javi laia y sergio redondeando al sobresaliente.
     - alumnos con alguna suspensa:
@@ -23,26 +27,30 @@
 - no promocionan:
     - estos tienen 13-14 años:
     - daniela: le quedan 6. propongo repetir 1eso. pasarla a 2 eso. de manera excepcional tras 2eso meterla en fpb. alumna disrruptiva que acumula 13 partes, uno de ellos grave. está en todos los fregaos. le vendrá bien separarla del grupo.
+        - pasa a ESO por agotar repeticiones
         - expulsada del plan refuerza.
-    - durán: le quedan 6. misma propuesta que daniela. solo 3 partes. algo menos disrruptivo y ya está separado de su grupo. repitió el año pasado, no puede volver a repetir primero?
+    - durán: en realidad sí promocionan le quedan 6. misma propuesta que daniela. solo 3 partes. algo menos disrruptivo y ya está separado de su grupo. repitió el año pasado, no puede volver a repetir primero?
+        - repiteel año pasado
     - elena: le quedan 4. misma propuesta que anteriores. 5 partes (móvil y llegar tarde).
          - expulsada del plan refuerza.
+         - repitió en primaria
     - estos tienen 12-13 años:
     - kristen: le quedan 3. suspende mates, lengua y gh. salvo que apruebe por competencias, misma propuesta que anteriores. esta con más razón porque es joven. 5 partes. uno grave. movil, retraso y copiar. (perfil diver?). con buenas influencias puede que se centre.
          - expulsada del plan refuerza.
+         - no repite pero se recomienda que repita
     - ali: le quedan 3. suspende mates (3), valores (4), musica (4). salvo que apruebe por competencias, que repita. lo haría por primera vez. perfil diver. 
 - ACNEES / ACNEAES
     - marta: aprueba todo. media de 6.
     - kerun: aprueba todo menos valores. media de 6. en mates hay que llevarle a hacer exámenes arriba para que le expliquen enunciados.
 
 - juntar separar: 
+    - paola con elsa de 1ºE.
     - daniela, elena, kristen, salma, fátima, durán separadas.
     - laia, mikel, olivia juntas.
     - valentina, luna, juanita, adriana, sofía, julia juntas
     - javier, oliver, toño, marcello, sergio juntos
     - separar grupo grande de chicos de grupo grande de chicas (se llevan fatal)
     - ali y tony separados
-    - paola con su amiga de otro grupo
     - marta y kerun juntar. marta en el grupo de julia?
 
 - tras mirar la información que han rellenado los demás profes en la web del profe, se observan los siguientes resultados:
@@ -116,6 +124,16 @@
 - descargar pdf y firmarlo digitalmente
 - subirlo a tarea de classroom de evaluación que abre Jefatura
 - descargar registro de entrevistas con familias y firmarlo digitalmente tb y pasarlo tb por la tarea classroom
+
+- toño de propone para programa en vez de sección? pero mejor guiarle el año que viene cuando haya madurado algo más.
+
+PROMOCIONAN ELENA Y KRISTEN Y REPITE DANIELA
+- se pone en raices que promocionan con pendientes
+- durán promociona por agotamiento de repeticion y con pendientes
+- daniela repetición
+- ESTO EN RAÍCES
+- DERIVO A DANIELA AL DEPARTAMENTO DE ORIENTACIÓN. HAGO UNA DERIVACIÓN FORMAL.
+
 
 ## POSTEVALUACIÓN
 - rellenar en la web del profe:
