@@ -44,7 +44,7 @@
     - kerun: aprueba todo menos valores. media de 6. en mates hay que llevarle a hacer exámenes arriba para que le expliquen enunciados.
 
 - juntar separar: 
-    - paola con elsa de 1ºE.
+    - paola con elsa de 1ºE y con paula gomez de 1ºc.
     - daniela, elena, kristen, salma, fátima, durán separadas.
     - laia, mikel, olivia juntas.
     - valentina, luna, juanita, adriana, sofía, julia juntas
