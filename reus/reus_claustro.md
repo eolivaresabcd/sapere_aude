@@ -610,3 +610,45 @@ PREPARAR TODO ESTO EL DOMINGO
 - resultados académicos
 - resultados de convivencia
 - resultados de absentismo
+
+# 2026/06/29 CLAUSTRO FINAL
+- aprobación acta claustro anterior: se aprueba por unanimidad
+- análisis resultados ev final
+    - E2 CM: bajada en lengua, mates bajada menor, inglés bajado considerable, geo/hist se mantiene. en todas por debajo de la media de la comunidad de madrid.
+    - E4 CM: bajada pronunciada en lengua, mates sube y se coloca en el intervalo de la comunidad, inglés se coloca por encima del intervalo tb y en geo/hist no sé.
+    - PAU:
+        - se presentan 65 y aprueban 63. 97% aprueba.
+        - el diferencial con las notas de la evau es de 1,16 puntos (sacan un punto menos en la evau - razonable)
+        - las cuatro comunes son las que tienen mejores resultados
+        - los chicos cada vez se presentan menos a la fasse de admisión, con bajadas de hassta el 50%
+        - el porcentaje de aprobados en ciencias y sociales y humanidades es prácticamente el mismo. históricamente los de ciencias aprobaban mucho más.
+- notas finales centro:
+    - la fp va ganando cada vez más alumnos y ahí aprueban y pasan de curso prácticamente todos
+    - en 1eso pasa el 94% que es más bajo respecto de los años anteriores
+    - casi el 30% de los alumnos de 2eso fracasan: repiten, o a diver, o a fp básica
+    - hay un abandono muy potente en 1bach. un 15%.
+    - titulan el 91% en sociales y humanidades y 88% en ciencias. Ha llegado una generación de ciencias muy flojita.
+- expectativa promoción por grupos:
+    - e1a: 94% promocionan en toda la eso y 96% en e1a.
+    - cada vez los chicos vienen con más carencias
+    - cada vez hay una brecha más notable entre los de sección y programa
+- análisis por asignaturas:
+    - en mates de 1eso solo aprueba un 72%, el porcentaje más pequeño de todas las asignaturas
+
+- convivencia:
+    - hay que castigar las faltas leves con falta de recreos o con aulescos, pq una simple notificación a los padres no sirve si no podemos contar con el apoyo de las familias.
+    - por faltas graves y muy graves ha habido muchas comparecencias en jefatura. hay que intentar evitar esos castigos y poner más recreos y aulescos.
+    - en 1bach no tiene sentido poner faltas leves. hay que elevar el listón de exigencia en el comportamiento y poner más faltas graves. el aprendizaje en 1bach es muy importante de cara a 2bach.
+
+- absentismo:
+    - faltan cada vez más chavales
+    - hay que amonestar los retrasos porque si no van a seguir llegando tarde.
+
+- para el año que viene:
+    - se quiere luchar contra los móviles en el centro
+
+- conclusiones finales:
+    - la extraordinaria sirve de poco. muy poquitos aprueban a la segunda.
+    - los chavales vienen cada vez más flojos en mates. tienen que currar más en casa.
+    - los chavales de sección son los buenos y los de programa los malos. cada vez se amplía más la brecha.
+
