@@ -9,3 +9,4 @@ cursos anpe: e.olivares.abcd user; pass: la de siempre
 banco mio: la de siempre sin los últimos 4 caracteres raros manteniendo mayus y minus como siempre
 banco con can: you know which 8
 sociescuela: la de siempre
+naturgy: one dot
