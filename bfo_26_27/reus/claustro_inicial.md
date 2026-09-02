@@ -1,0 +1,144 @@
+# CLAUSTRO INICIAL
+## 2026/09/01
+- people:
+    - marta cebrián directora
+    - javier secretario
+    - nerea jefa de estudios titu
+    - olaia y lara jefas de estudios adjuntas
+    - aux control e info: elena, anaís, salva
+    - personal limpieza: sonia
+    - aux administración: yolanda y ana
+    - enfermera: mar
+- datos del centro subidos en un documento en el campus virtual (en la página web)
+- 67 profesores en total contando con jornadas parciales y demás
+- 17 departamentos
+- centro de eso y bachillerato con diver.
+- horario:
+    - de 8:15 a 2:12 o 3:15
+    - séptimas horas lunes y miércoles
+    - recreo de 11:00 a 11:30
+    - descanso de 14:15 a 14:20
+- distribución de centro:
+    - aulario en tres plantas divididas en zona azul amarilla y roja
+    - aulas numeradas en las centenas comenzando con la cifra correspondiente al piso. pares en un lado e impares en otro
+- llaves:
+    - javier el secretario comenta
+    - se aprueba el acta del claustro anterior (el del curso pasado)
+    - profesores nuevos vamos al despacho de javi para recoger las llaves:
+        - llave maestra para aulas generales y específicas y baños, salvo informática
+        - llave de departamento
+        - llave de ventanas. solo se abren sin llave de forma oscilobatiente. al abrirla por completo la llave se tiene que quedar dentro.
+        - llave de armarios y cajones de todas las aulas
+        - en caso de problemas, hablar con javier el secretario
+- aerotermia no se regula desde las aulas. en conserjería hay un cuaderno de incidencias.
+- aulas: son aulas materia
+- aparcamiento 
+    - con 38 plazas y una más para personas con discapacidad
+    - se accede con mando
+    - 35 euros de fianza (efectivo o transferencia)
+    - solo se puede usar en horario de trabajo
+- pizarra digital: usar un lápiz. fianza de 15 euros.
+- fotocopias y carnet:
+    - fotocopia en sala de profesores se usa el carnet
+    - subir foto nuestra s dónde?
+    - las tarjetas tienen saldo. si se acaba se recarga en secretaría.
+    - habrá una formación de uso de fotocopiadora y dos tutoriales subidos en el aula virtual
+- material:
+    - siempre es aconsejable preguntar primero a javier el secretario
+    - pedir siempre factura con los datos del centro si se va a usar para el aula
+    - datos contables del centro en unas tarjetitas en secretaría y en un papel colgado en el aula de profes
+- calendario escolar: documento congado en el aula virtual. echarle un vistazo
+- primera semana:
+    - martes: claustro
+    - xcoles: reus departamento
+    - jueves: publicación equipos docentes por grupos y formación TIC y fotocopias
+    - viernes: reus rápidas de equipos docentes por grupo
+        - se nos da info de determinados alumnos para diseñar actividades
+    - lunes: tercero, cuarto y diver
+- calendario evaluaciones: esto es para eso (se ve todo lo demás en el aula virtual)
+    - inicial: 5 y 6 de oct
+    - primera: 30 nov a 3 dic
+    - segunda: 11 mar a 17 mar
+    - tercera / final: 10 jun a 16 jun
+    - extraordinaria bach: 
+- calendario exámenes: 
+    - no poner exámenes la semana de antes del calendario de exámenes
+    - los exámenes fuera del calendario no pueden durar más de 55 min (un período)
+    - creo que los finales de bach son tipo PAU y tb hay unas subidas tipo EXT PAU
+- claustros:
+    - inicio curso: 1 sept y 8 sept
+    - primer trimestre: 29 oct y 15 dic
+    - segundo trimestre: 1 abril
+    - fin curso: 28 jun
+- reus con familias: mirar cv
+- actividades complementarias y esxtraescolares no se pueden diseñar en periodos de evaluaciones
+- canales de comunicación: todo de educamadrid siempre
+    - aula virtual: comunicación entre nosotros
+    - correo: comunicación entre nosotros
+    - cloud: comunicación entre nosotros
+    - raíces
+    - paneles
+- ausencias y libre disposición:
+    - se comunica previamente la ausencia
+    - luego se entrega el justificante médico
+    - hay que leer detenidamente el contenido del botón de permisos y licencias
+    - se ve la disponibilidad y se seleccionan los días en la web
+- organización del centro:
+    - 6 grupos en toda la ESO. max 27 alumnos.
+    - diver 1 grupo, máximo de 15.
+    - bachillerato muy caargado.
+    - este año no hay auxiliares de conversación
+    - hay dos modalidades de bilingüismo: programa (para todos) y sección (para los mejores en inglés. mínimo un B1)
+- organización jefatura de estudios:
+    - se dividen por niveles:
+    - 1 eso y bach lo lleva la que habla
+    - no existen grupos puros de programa (excepto diver)
+    - sí existen grupos puros de sección
+    - E1E y E1F son puros de sección tienen 25 alumnos. los demás E1 tienen alguno menos.
+    - lara lleva 2 eso: E2E y E2F puros de sección.
+    - lara lleva 3 eso: misma distribución salvo E3C que tiene menos pq se juntan con los de diver
+    - olaia lleva 4 eso: grupo puro de programa en mates de humanidades 17 personas E4E. E4F tecnológico se juntan con diver. E4A y E4B científico. E4C puro sección con humanidades profesional y científico. 
+    - olia lleva diverr: primero de diver 10 alumnos y 15 alumnos en segundo de diver
+    - la que habla lleva 1bach: B1A científico e inglés avanzado. B1B y B1C mixtos. En torno a 35 en cada grupo pero solo 15 en cada uno de ciencias.
+    - la que habla lleva 2bach: grupo puro de humanidades y ccss que va a funcionar bien 35 pers. B2A científico y B2B mixto.
+    - la Atención Educativa está repartida por los departamentos. Hay que enfocarlo a hacer un proyecto significativo y relevante.
+- horario lectivo:
+    - todos los profes deben cerrar a 19 horas lectivas
+    - los media jornada cierran a 10 horas lectivas
+    - los dos tercios cierran a 13
+    - coordinación / información los jueves a séptima para todos los profes
+    - la deshidrata es una "lista de deseos"
+    - guardias: sin tutoría ni JD ni bilingüismo: 
+        - completa 20: 3 guardias y 2 apoyos
+        - completa 19: 5 guardias y 1 apoyo
+        - 2/3 jornada: 3 guardias y 0 apoyos
+        - 1/2 jornada: 2 guardias y 0 apoyos
+- proyectos: mucho curro, no me voy a involucrar pq quiero opositar
+    - huerto
+    - 4+empresa
+    - erasmus+
+    - betalent capgemini steam (coche eléctrico el año pasado)
+    - ipafd: lo que había el año pasado en el sapere. vinculado solo a educación física
+        - voley
+        - hockey
+        - basket
+        - futbol sala
+        - bádminton
+        - tenis de mesa habrá el año que viene
+    - stars: bicibús (uno al mes). se integran unidades didácticas de bicicleta.
+    - global classrooms
+    - programa de salud mental infanto - juvenil. la psicóloga viene al centro una vez cada 3 semanas. (aquí hay chicos que dan muchos problemas). la psicóloga se llama maría. psiquiatra, psicóloga, enfermera y especialista en salud mental son el equipo que la apoyan
+- bienestar:
+    - se sustenta en alumnos ayuda y profes "vigilantes" para detectar por dónde ayudar. hay aula de bienestar y se realiza la mediación en casos de conflicto.
+- recreos activos: torneos de furbo y demás cosas
+- biblioteca: se va a abrir dentro de poco
+- club de lectura: lo lleva olalla
+- bachillerato de investigación
+- comisión de igualdad
+- revista de centro
+- voces del aula (radio y podcast): coordinado por conchi sebastián
+
+- RUEGOS Y PREGUNTAS:
+    - hay una asamblea de centro montada desde hace años por compis que ya no están
+    - huelga indefinida desde el 14 oct
+    - preguntar por grupo de WA a alguien del departamento
